@@ -1,6 +1,6 @@
 ### HEY THERE!, ~ im plazma nice 2 see u -͟͟͞☆
-#### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆
-![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
+#### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋆
+![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
 
 HEYY HEYY OVER HERE ; More info about me over here! 
  pretty chill person im pretty honest sometimes rude-
