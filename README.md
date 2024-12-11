@@ -1,22 +1,22 @@
 ### Hi there 👋, ~ im plazma nice 2 see u -͟͟͞☆
 #### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆
-![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
+![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
 
-┊       ┊       ┊     ┊     ┊More info about me over here! 
-┊       ┊       ┊     ┊    ˚★ pretty chill person im pretty honest sometimes rude-
-┊       ┊       ┊     ★feel tree to interact or be buddies i like chilling & idm! 
-┊       ┊       ★｡i love anime! esp action & silly ones i love those! 
-┊      ˚★eya click my 100281938 links thank u you'll learn more !
-★⋆ alright plasma out BYEEEeEEEEeeeEEEEE ~ 
+HEYY HEYY OVER HERE ; More info about me over here! 
+ pretty chill person im pretty honest sometimes rude-
+ ★feel tree to interact or be buddies i like chilling & idm! 
+★｡i love anime! esp action & silly ones i love those ! -no romance srru!
+˚★eya click my 100281938 links thank u you'll learn more !
+★⋆ alright plasma out that is all BYEeE ~ 
 
-Skills: pretty much a social networker starter but cool! ⋆
+Skill: pretty much a social networker starter but cool! ⋆
 
-- 🔭 I’m currently working on more discord servers mainly animes reccomend some ( has to be fairly trending) 
-- 🌱 I’m currently learning more social networking hehhh a 
-- 💬 Ask me about ANYTHING! - ..no nsfw... 
-- 📫 How to reach me: mainly discord - 
-- 😄 Pronouns: anything again i dont mind ^^ 
-- ⚡ Fun fact: im cool right. . right ! 
+-- ✮ I’m currently working on more discord servers mainly animes reccomend some ( has to be fairly trending) 
+- ✰ I’m currently learning more social networking hehhh a
+--✮ Ask me about ANYTHING! - ..no nsfw... 
+- ✰ How to reach me: mainly discord - 
+-- ✮ Pronouns: anything again i dont mind ^^ 
+- ✰ Fun fact: im cool right. . right ! 
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/Pl4zum8tic-n2gare)  
