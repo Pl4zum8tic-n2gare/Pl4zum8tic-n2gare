@@ -1,13 +1,14 @@
-### HEY THERE!, ~ im plazma nice 2 see u -͟͟͞☆
+### HEY THERE!💜, ~ im plazma nice 2 see u  -͟͟͞☆
 #### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋆
 ![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
 
-HEYY HEYY OVER HERE ; More info about me over here! 
+HEYY HEYY OVER HERE ;
+- More info about me over here! 
  pretty chill person im pretty honest sometimes rude-
  ★feel tree to interact or be buddies i like chilling & idm! 
 ★｡i love anime! esp action & silly ones i love those ! -no romance srru!
 ˚★eya click my 100281938 links thank u you'll learn more !
-★⋆ alright plasma out that is all BYE ~ 
+- ★⋆ alright plasma out that is all BYE ~ 
 
 Skill: pretty much a social networker starter not to intresting ! ⋆
 
