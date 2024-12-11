@@ -1,4 +1,4 @@
-### Hi there 👋, ~ im plazma nice 2 see u -͟͟͞☆
+### HEY THERE!, ~ im plazma nice 2 see u -͟͟͞☆
 #### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆
 ![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆──── ⋆⋅☆⋅⋆ ──── ⋆](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
 
@@ -7,11 +7,11 @@ HEYY HEYY OVER HERE ; More info about me over here!
  ★feel tree to interact or be buddies i like chilling & idm! 
 ★｡i love anime! esp action & silly ones i love those ! -no romance srru!
 ˚★eya click my 100281938 links thank u you'll learn more !
-★⋆ alright plasma out that is all BYEeE ~ 
+★⋆ alright plasma out that is all BYE ~ 
 
-Skill: pretty much a social networker starter but cool! ⋆
+Skill: pretty much a social networker starter not to intresting ! ⋆
 
--- ✮ I’m currently working on more discord servers mainly animes reccomend some ( has to be fairly trending) 
+- ✮ I’m currently working on more discord servers mainly animes reccomend some ( has to be fairly trending) 
 - ✰ I’m currently learning more social networking hehhh a
 --✮ Ask me about ANYTHING! - ..no nsfw... 
 - ✰ How to reach me: mainly discord - 
