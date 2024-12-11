@@ -13,9 +13,9 @@ Skill: pretty much a social networker starter not to intresting ! ⋆
 
 - ✮ I’m currently working on more discord servers mainly animes reccomend some ( has to be fairly trending) 
 - ✰ I’m currently learning more social networking hehhh a
---✮ Ask me about ANYTHING! - ..no nsfw... 
+- ✮ Ask me about ANYTHING! - ..no nsfw... 
 - ✰ How to reach me: mainly discord - 
--- ✮ Pronouns: anything again i dont mind ^^ 
+- ✮ Pronouns: anything again i dont mind ^^ 
 - ✰ Fun fact: im cool right. . right ! 
 
 
