@@ -1,14 +1,14 @@
 ### HEY THERE!💜, ~ im plazma nice 2 see u  -͟͟͞☆
-#### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋆
-![─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆──── ]([[https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg](https://i.pinimg.com/originals/67/7b/ae/677bae7a40b03ec5b65c7979c4bb4c80.gif)]])
-
-HEYY HEYY OVER HERE ;
+#### ─── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ────-神-──── ⋆⋅☆⋅⋆────![tanjiro!](https://i.pinimg.com/736x/ba/5d/e5/ba5de5900754fa0792c614dd703198ad.jpg)
+- ┊         ┊       ┊   ┊    ┊        ┊HEYY HEYY OVER HERE ;
+- ┊         ┊       ┊   ┊   ˚★⋆pretty chill person. im honest, sometimes it is considered rude (apologizes if this does happen)
+- ┊         ┊       ┊   ⋆ feel free to interact or be buddies i like chilling & idm!
+- ┊         ┊       ★⋆｡i love anime! I love action & silly ones I love those ! -no romance srru!
+- ┊                ★ click my 100281938 links thank u you'll learn more !
+- ★⋆        ┊ .  ˚  thank u for for visiting I appreciate ur time ^_^
+           ˚★ alright plasma out that is all BYE ~ 
 - More info about me over here! 
-pretty chill person im pretty honest sometimes it is considered rude (apologizes if this does happen)
-★feel free to interact or be buddies i like chilling & idm!
-★｡i love anime! I love action & silly ones I love those ! -no romance srru!
-˚★eya click my 100281938 links thank u you'll learn more !
-- ★⋆ alright plasma out that is all BYE ~ 
+
 
 Skill: pretty much a social networker starter although I'm not too intresting? ! ⋆
 
