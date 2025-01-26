@@ -12,18 +12,20 @@
 
 Skill: pretty much a social networker starter although I'm not too intresting? ! ⋆
 
-- ✮  working on more discord servers mainly animes reccomend some (has to be fairly trending) 
-- ✰ I’m currently learning more about social networking hehhh a
-- ✮ Ask me about ANYTHING! - ..no nsfw... 
-- ✰ How to reach me: mainly discord - 
-- ✮ Pronouns: anything again don't mind ^^ 
-- ✰ Fun fact: I'm cool right. . right ! 
+- ⭐️  working on more discord servers mainly animes reccomend some (has to be fairly trending) 
+- 🌟 I’m currently learning more about social networking hehhh a
+- ⭐️ Ask me about ANYTHING! - ..no nsfw... 
+- ⭐️ How to reach me: mainly discord - 
+- 🌟 Pronouns: anything again don't mind ^^ 
+- ⭐️ Fun fact: I'm cool right. . right ! 
 
-DO NOT INTERACT! LIST below !
-- UNDER 8yrs ABOVE 21yrs : I'm just looking for friends some can be boring if age, it's ok if u are
-- zoophiles, pedophiles, pro-shippers, racism, xenophobics ; I do NOT support theese do not interact if your 1
+‼️DO NOT INTERACT! LIST below ‼️
+- UNDER 8yrs ABOVE 21yrs :
+  I'm just looking for friends some can be weird/boring if age, it's ok if u are
+- zoophiles, pedophiles, pro-shippers, racism, xenophobics , 
+ I do NOT support theese do not interact if your 1
 
-︶꒷꒦︶ ๋࣭ ⭑ ☆ﾟ°˖*☆ﾟ°˖*  ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ☆ﾟ°˖*☆ﾟ°˖*  ⭑︶꒷꒦︶ ๋࣭︶꒷꒦︶ ๋࣭ ⭑ ☆ﾟ°˖*☆ﾟ°˖*  ⭑︶꒷꒦︶ ๋࣭ 
+︶꒷꒦︶ ๋࣭ 🌙 ☆ﾟ°˖*☆ﾟ°˖*  🪻︶꒷꒦︶ ๋࣭ 😈︶꒷꒦︶ ๋࣭ ☂️ ☆ﾟ°˖*☆ﾟ°˖*  🪐︶꒷꒦︶ ๋࣭︶꒷꒦︶ ๋࣭ 🌒 ☆ﾟ°˖*☆ﾟ°˖*  💜︶꒷꒦︶ ๋࣭ 
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/Pl4zum8tic-n2gare)  
