@@ -9,7 +9,6 @@
            ˚★ alright plasma out that is all BYE ~ 
 - ### More info about me over here!![saboto](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/25c93289-0576-4645-bc48-e828abec9740/ddkn89d-330c0835-0c07-45d7-ab18-9e197e9f8f16.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI1YzkzMjg5LTA1NzYtNDY0NS1iYzQ4LWU4MjhhYmVjOTc0MFwvZGRrbjg5ZC0zMzBjMDgzNS0wYzA3LTQ1ZDctYWIxOC05ZTE5N2U5ZjhmMTYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.xuZQ_oorvJOjT1JRqAT7Z-y4aEebYtN21_vgBQX4lh4)
 
-Skill: pretty much a social networker starter although I'm not too intresting? ! ⋆
 
 
 - 🌟 I’m currently learning more about social networking hehhh a
@@ -24,7 +23,7 @@ Skill: pretty much a social networker starter although I'm not too intresting? !
 - zoophiles, pedophiles, pro-shippers, racism, xenophobics , 
  I do NOT support theese do not interact if your 1
 
-### ︶꒷꒦︶ ๋࣭ 🌙 ☆ﾟ°˖*☆ﾟ°˖*  🪻︶꒷꒦︶ ๋࣭ 😈︶꒷꒦︶ ๋࣭ ☂️ ☆ﾟ°˖*☆ﾟ°˖*  🪐︶꒷꒦︶ ๋࣭︶꒷꒦︶ ๋࣭ 🌒 ☆ﾟ°˖*☆ﾟ°˖*  💜︶꒷꒦
+### ︶꒷꒦︶ ๋࣭ 🌙 ☆ﾟ°˖*☆ﾟ°˖*  🪻︶꒷꒦︶ ๋࣭ 😈︶꒷꒦︶ ๋࣭ ☂️ ☆ﾟ°˖*☆ﾟ°˖*  🪐︶꒷꒦︶ ๋࣭︶꒷꒦︶ ๋࣭ 🌒 ☆ﾟ°˖*☆ﾟ💜︶꒷꒦
 
 
 
