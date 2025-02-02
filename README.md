@@ -18,7 +18,7 @@
 - ⭐️ Fun fact: I'm cool right. . right ! 
 
 # ‼️DO NOT INTERACT! LIST below ‼️
-- UNDER 8yrs ABOVE 21yrs :
+- UNDER 8yrs ABOVE 20yrs :
   I'm just looking for friends some can be weird/boring if age, it's ok if u are
 - zoophiles, pedophiles, pro-shippers, racism, xenophobics , 
  I do NOT support theese do not interact if your 1
