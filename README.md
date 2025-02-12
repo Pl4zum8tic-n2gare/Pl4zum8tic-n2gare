@@ -39,12 +39,12 @@
 *  ⋆
 *─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅*
 -   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ╰‼️DNIUF - 「 **it’s fine if u play like this but it’s not preferable 2 me** 」‼️ノ
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆  ‎ ‎ ‎ ‎ ‎  ‎ ‎If you are one of the following, Id most likey want u 2 you dni.˚★ノ
+* ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆  ‎ ‎ ‎ ‎ ‎  ‎ ‎If you are one of the following, Id most likey want u 2 you dni.˚★ノ
 * ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎╰‎‎Toxic ppl & serious role players 「unless I asked or in 2 be in a rp pls don’t」
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎‎   ‎   ‎ ‎  ‎   ‎   ‎ → Anyone below 9 or over 22 
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎I don’t prefer sexa jokes but it’s fine 「jokes like kissing & marrying are good」˚★ノ
-* ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ╰sprunki fandom pls be normal also the fandom is rlly youngノ
-*  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎  ‎   ‎    ‎     ‎   ‎ ‎   ‎ ╰*i dont like brainrot jokes, skibidi etc*ノ
+* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎‎   ‎   ‎ ‎  ‎   ‎   ‎  ‎ ‎  ‎ ‎  ⋆ ⋆ ‎ ‎  ‎ ‎ ‎‎‎‎→ Anyone below 9 or over 22 
+* ‎ ‎ ‎ ‎ ‎  ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎I don’t prefer sexa jokes but it’s fine 「jokes like kissing & marrying are good」˚★ノ
+* ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ╰sprunki fandom pls be normal also the fandom is rlly youngノ
+*  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎  ‎   ‎    ‎     ‎   ‎ ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰*i dont like brainrot jokes, skibidi etc*ノ
 * **﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・**
 ![image](https://github.com/user-attachments/assets/f934bc4a-8b7e-4437-85b7-5593cd993ca8)
 **─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆**
