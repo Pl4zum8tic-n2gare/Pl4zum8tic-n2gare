@@ -8,11 +8,12 @@
 
    ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sebding a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ 
 ![image](https://github.com/user-attachments/assets/513d69a5-073c-4ac4-b0ae-44385549beca)
-![o](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
+![o](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎![image](https://github.com/user-attachments/assets/4197dd62-48fb-4553-b26b-22242878fa3f)
+ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
 「my **beloveds**」![image](https://github.com/user-attachments/assets/cd783bfa-35a5-4721-bc85-ba0bd41cdcd2)
-: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎  ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-![image](https://github.com/user-attachments/assets/f7971df0-4a69-4274-932e-5be2b57f1a49)
+: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎  ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
+
 
 ![image](https://github.com/user-attachments/assets/6d6f4235-37d4-4b1f-befe-df755838a4ae)
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
