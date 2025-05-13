@@ -1,7 +1,6 @@
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎  ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418)
- ‎⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
-    ₊⊹**[Reply](https://replaz.straw.page)** ✧˖ ![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
+    ₊⊹**[Reply](https://replaz.straw.page)** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
  ‎  ₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖  ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13)
@@ -13,10 +12,13 @@
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
 「my **beloveds**」![image](https://github.com/user-attachments/assets/cd783bfa-35a5-4721-bc85-ba0bd41cdcd2)
 : << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎  ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-- **⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘・⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘・**
+![image](https://github.com/user-attachments/assets/f7971df0-4a69-4274-932e-5be2b57f1a49)
+
 ![image](https://github.com/user-attachments/assets/6d6f4235-37d4-4b1f-befe-df755838a4ae)
-- **⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ・⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘・**
-  ![image](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7) ![image](https://github.com/user-attachments/assets/e1196232-0390-44cc-9568-28b2fcdbe512)
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+
+
+![image](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7) ![image](https://github.com/user-attachments/assets/e1196232-0390-44cc-9568-28b2fcdbe512)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰ ‎💫 ★ HEY BROS *PLAZMA* & SHIT U CAN READ ABT★ ノ
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎                     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**⟡ ݁₊ . Names:**
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**unqiue nickname:** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎ ‎ ‎  ‎  ‎  ‎  ‎ **╰、Plazma。Lanpan 、yuzuki 。ノ**
