@@ -1,12 +1,13 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ⋆‎   ⭐ ‎⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ⭐    ₊⊹**[Reply](https://replaz.straw.page)** ✧˖ ⭐‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ⋆‎⭐ ‎  ₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖  ⭐ 
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person please talk or cuddle with me before sebding a friend requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ ![](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sebding a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ ![](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
  * . ‎💫「my **beloveds**」: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎  ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 - **⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘・⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘・**
 ![image](https://github.com/user-attachments/assets/6d6f4235-37d4-4b1f-befe-df755838a4ae)
 - **⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ・⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘・**
-##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰ ‎💫 ★ hi guys plasma and stuff u can know abt ★ ノ
+  ![image](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7) ![image](https://github.com/user-attachments/assets/e1196232-0390-44cc-9568-28b2fcdbe512)
+##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰ ‎💫 ★ HEY BROS *PLAZMA* & SHIT U CAN READ ABT★ ノ
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎                     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**⟡ ݁₊ . Names:**
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**unqiue nickname:** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎ ‎ ‎  ‎  ‎  ‎  ‎ **╰、Plazma。Lanpan 、yuzuki 。ノ**
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆    ╰**common nicknames ⟡ ݁₊ ★** ノ       
@@ -15,9 +16,9 @@
 - **⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘・⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘・**
 
 ★
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎★ ‎  ‎♥︎₊˚ ⧽╰ ⌞Any Pronouns: i don't really care ⌝ノ
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  ‎ ‎  ‎‎  ‎ ‎ ‎ c‎ommons ones: 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ╰She/her/they/them/their/theyresノ
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎★ ‎  ‎♥︎₊˚ ⧽╰ ⌞Any Pronouns: i don't really care YOU CAN EVEN CALL ME A THING. ⌝ノ
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  ‎ ‎  ‎‎ ‎ the USUAL ones: 
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ╰SHE、HER、HIS、HE、ITS、THEMノ
 - ─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── 
 ![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
 
