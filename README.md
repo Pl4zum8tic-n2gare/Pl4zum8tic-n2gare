@@ -1,9 +1,9 @@
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
     ₊⊹**[Reply](https://replaz.straw.page)** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
-₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13)
+₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  
 
    ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sebding a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ 
@@ -12,7 +12,12 @@
  ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
 「my **beloveds**」![image](https://github.com/user-attachments/assets/cd783bfa-35a5-4721-bc85-ba0bd41cdcd2)
-: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎  ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
+: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
+‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
+‎ ⋆‎ ⋆   ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/341cdf41-9155-4a1b-b56f-9d6e06d55c5e)
+‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
+‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
+‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
 
 
 ![image](https://github.com/user-attachments/assets/6d6f4235-37d4-4b1f-befe-df755838a4ae)
