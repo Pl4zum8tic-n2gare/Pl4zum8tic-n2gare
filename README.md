@@ -38,19 +38,19 @@
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎![image](https://github.com/user-attachments/assets/3dd240f7-7639-4d5c-a967-3a2c9c648db1)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎⋆ ‎  「some arent even nicknames their titles ATP」. ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
-- **⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘・⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘・**
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 
-★
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎★ ‎  ‎![image](https://github.com/user-attachments/assets/7c931af8-c4d5-4b7e-85a8-c1389d9e8ae3)
+‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎
 ₊˚ ⧽╰ ⌞Any Pronouns: i don't really care YOU CAN EVEN CALL ME A THING. ⌝ノ![image](https://github.com/user-attachments/assets/97e184cd-2cf2-4f72-b2ac-78951f01906c)
 
 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎‎ ‎ the USUAL ones: 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ╰SHE、HER、HIS、HE、ITS、THEMノ
-- ─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── 
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎  ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ‎‎ ‎ **the USUAL** ones: 
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎ **╰SHE、HER、HIS、HE、ITS、THEMノ**
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 ![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
 
-* ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ──
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 * ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎  ‎  ‎˚★
 * ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
 * ┊ ┊ ┊ ⋆ feel free to interact or be buddies i like chilling & i LOVE c+h
@@ -58,9 +58,9 @@
 * ┊ ★ click my 100281938 links thank u you'll learn more !
 * ★⋆ ┊ . ˚ ⭐️thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★
 
-**- ﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・**
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 ![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
-**- ﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・**
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 
 ⠀⠀-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎˚⋆‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎   ‎   ‎ ‎  ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰‎‼️DNI pls - **If you are one of the people, do not interact**‼️ノ
 *  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎  ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎→ Hazbin Hotel fans 
