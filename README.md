@@ -1,5 +1,4 @@
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ 
- ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎  ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418)
  ‎⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
     ₊⊹**[Reply](https://replaz.straw.page)** ✧˖ ![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
