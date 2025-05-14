@@ -17,7 +17,7 @@
 ‎ ⋆‎ ⋆   ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/341cdf41-9155-4a1b-b56f-9d6e06d55c5e)
 ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
 ‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
-‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
+‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
 
 
 ![BANNER.1](https://github.com/user-attachments/assets/cff70244-b66e-4243-9260-ce88de78b0d5)
@@ -27,25 +27,38 @@
   
    ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎                     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**⟡ ݁₊ .MY BORING Names:** 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
-‎ ‎ ‎ ‎ ‎ ‎ ‎**unqiue nickname:** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎ ‎ ‎  ‎  ‎  ‎  ‎ **╰、Plazma。Lanpan 、yuzuki 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
+- ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
+- ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
+‎ ‎ ‎ ‎  ‎**╰。akir、Iren。elricノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
+ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。Enver 、yuzuki 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
 
 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆    ╰**common nicknames ⟡ ݁₊![image](https://github.com/user-attachments/assets/6d0840ef-2ec6-4de5-9e12-7975140150ab)** ノ       
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)
-- **୭ ˚. plazm&ms、pissma、plasballs、plasma pea shooter etc**‎ノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ![image](https://github.com/user-attachments/assets/225cb9a4-d467-4fb4-89ae-10cc0a19aa3d)
- ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎  **⊹'˖Plaz、Lan。Yuzu 、**
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎![image](https://github.com/user-attachments/assets/3dd240f7-7639-4d5c-a967-3a2c9c648db1)
- ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎⋆ ‎  「some arent even nicknames their titles ATP」. ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
+- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎
+- ⋆![image](https://github.com/user-attachments/assets/fd451eb0-644e-4a2b-9dc3-5beb0470f7aa)
+ ‎ ‎⋆ ‎ ‎ ‎ ‎⟡ ݁₊‎╰**unique nicknamesノ**‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/9a714129-d671-49ee-a301-0f4b35cbfa13)
+  ‎ ‎ ‎‎  ⋆ ╰**common nicknamesノ⟡ ݁₊![image](https://github.com/user-attachments/assets/adac7a36-0b4e-4e3c-b26a-42541022b998)**       
+- **![image](https://github.com/user-attachments/assets/56f1f5a7-a5e5-46de-9ef5-f8822f31db74)
+  。KIDnaper、plastic、plazballzノ** ‎⋆‎![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。Env 、yuzu 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
 
+- ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎ ‎ ⋆ ‎ ‎ ⋆  ‎ ‎ 『i love nicknames pla give more』
+-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
+**「some arent even nicknames their titles ATP」.**
+![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+- ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
+⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
+  ‎ ⋆‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ⋆‎‎‎‎‎ ‎  ‎ ⋆‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎  ‎ ⋆‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎‎ ‎  ‎‎‎‎‎ ![image](https://github.com/user-attachments/assets/accdee9d-0a74-4555-9f35-cf8afa3333b3)
+₊˚ **⧽╰ ⌞Any Pronouns i IDC. ⌝ノ**
 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎★ ‎  ‎![image](https://github.com/user-attachments/assets/7c931af8-c4d5-4b7e-85a8-c1389d9e8ae3) ⋆ ‎₊˚ ⧽╰ ⌞Any Pronouns: i don't really care YOU CAN EVEN CALL ME A THING. ⌝ノ![image](https://github.com/user-attachments/assets/97e184cd-2cf2-4f72-b2ac-78951f01906c)
+-  ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ![meo](https://github.com/user-attachments/assets/362a9eee-0e6e-4124-90f0-d0a25886c683) ‎ ‎ ‎ ‎.‎ ‎‎ ‎
+‎‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎⋆. ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎⋆![image](https://github.com/user-attachments/assets/34fa80a4-0b02-4e28-91b5-c27f00dd4a21) **the USUAL ones:** ˚★
+- ☆ ݁**╰‎masc![image](https://github.com/user-attachments/assets/bb0a71a3-e6fb-4c94-8fc9-af7b323fb770)、
+![image](https://github.com/user-attachments/assets/f6b27a06-acfb-476a-8bc9-06376343bb31) IDC guysノ** ‎ ‎ ‎ ‎ 
+‎ ‎‎ ‎ ‎‎ ‎⋆ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ⋆‎ ‎       ‎ ‎![image](https://github.com/user-attachments/assets/cf25667c-3310-495d-b655-32e558c1ef4b) ‎ ‎ ‎  ⋆ ‎    ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎  ‎‎‎‎ ‎‎ **╰。HER、 ‎ ‎ ‎ ‎HE。ITS、THEMノ** ![image](https://github.com/user-attachments/assets/d0a826d2-f70d-4d0f-ab14-e617db0a4f7f)
+- ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎‎ .‎ ‎‎ ‎⋆![image](https://github.com/user-attachments/assets/7bebfa2f-8361-4a02-9ac7-7eff2914fbad)
+‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎. ‎ ‎ ‎『**theese arent to strict! i dont care what u call me**』       ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/0789a4ca-210e-4941-b56a-59a35041ec58)
 
-
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ‎‎ ‎ **the USUAL** ones: 
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎ **╰SHE、HER、HIS、HE、ITS、THEMノ**
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 ![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
 
