@@ -64,12 +64,20 @@
 ![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
 
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
-* ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎  ‎  ‎˚★
+* ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
+ ‎  ‎˚★
 * ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
-* ┊ ┊ ┊ ⋆ feel free to interact or be buddies i like chilling & i LOVE c+h
-* ┊ ┊ ★⋆｡i love anime! I love action & silly ones I love those but also mystery&hollow games - no romances sorryノ
-* ┊ ★ click my 100281938 links thank u you'll learn more !
-* ★⋆ ┊ . ˚ ⭐️thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★
+* ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
+ feel free to interact or be buddies i like chilling & i LOVE c+h ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
+
+* ┊ ┊ ![image](https://github.com/user-attachments/assets/645ae0e8-6e2d-4396-b4e5-708d054cf33a)
+★⋆｡i love anime! I love action & silly ones I love those but also mystery&hollow games ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368)
+ no romances sorryノ
+* ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
+ click my 100281938 links thank u you'll learn more !
+* ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
+thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e)
+
 
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 ![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
