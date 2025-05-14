@@ -52,8 +52,9 @@
 
 -  ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ![meo](https://github.com/user-attachments/assets/362a9eee-0e6e-4124-90f0-d0a25886c683) ‎ ‎ ‎ ‎.‎ ‎‎ ‎
-‎‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎⋆. ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎⋆![image](https://github.com/user-attachments/assets/34fa80a4-0b02-4e28-91b5-c27f00dd4a21) **the USUAL ones:** ˚★
-- ☆ ݁**╰‎masc![image](https://github.com/user-attachments/assets/bb0a71a3-e6fb-4c94-8fc9-af7b323fb770)、
+‎‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎⋆. ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎⋆![image](https://github.com/user-attachments/assets/34fa80a4-0b02-4e28-91b5-c27f00dd4a21) **╰the USUAL ones:ノ** ˚★
+- ![image](https://github.com/user-attachments/assets/0b4a40da-a891-46f9-842a-20f4db27faef)
+ ݁**╰‎masc![image](https://github.com/user-attachments/assets/bb0a71a3-e6fb-4c94-8fc9-af7b323fb770)、
 ![image](https://github.com/user-attachments/assets/f6b27a06-acfb-476a-8bc9-06376343bb31) IDC guysノ** ‎ ‎ ‎ ‎ 
 ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ⋆‎ ‎       ‎ ‎![image](https://github.com/user-attachments/assets/cf25667c-3310-495d-b655-32e558c1ef4b) ‎ ‎ ‎  ⋆ ‎    ‎  ‎ ‎ ‎ ‎ ⋆‎ ‎  ‎‎‎‎ ‎‎ **╰。HER、 ‎ ‎ ‎ ‎HE。ITS、THEMノ** ![image](https://github.com/user-attachments/assets/d0a826d2-f70d-4d0f-ab14-e617db0a4f7f)
 - ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎‎ .‎ ‎‎ ‎⋆![image](https://github.com/user-attachments/assets/7bebfa2f-8361-4a02-9ac7-7eff2914fbad)
