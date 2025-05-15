@@ -12,12 +12,18 @@
  ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ⋆‎ ‎‎  ⋆
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
 「my **beloveds**」![image](https://github.com/user-attachments/assets/cd783bfa-35a5-4721-bc85-ba0bd41cdcd2)
-: << **G H K Z F R** ⋆‎‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⋆‎             ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
-‎  ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎⋆‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
-‎ ⋆‎ ⋆   ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/341cdf41-9155-4a1b-b56f-9d6e06d55c5e)
+: << **![image](https://github.com/user-attachments/assets/5a434bfa-d6d7-401b-94e8-ab5b59c67a8b)
+![image](https://github.com/user-attachments/assets/f3249093-e178-432b-a2bf-faae87d318d0)
+ ![image](https://github.com/user-attachments/assets/5fca18ab-881d-4add-9cf5-75e733ac8b39)
+ ![image](https://github.com/user-attachments/assets/62f67147-9068-409c-8da1-bb5706f23d11)
+ ![image](https://github.com/user-attachments/assets/8c698ed5-e9ad-4b5a-933a-d4135e1342b4)
+![image](https://github.com/user-attachments/assets/e2f38b2b-62d3-4ca3-8e20-4f6d323ec7c9)
+** ⋆‎‎ ‎‎ ⋆‎ ‎  ‎ ⋆            ⋆‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
+‎  ⋆‎‎  ‎ ‎ ‎ ⋆‎ ‎⋆‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
+‎ ⋆‎   ‎⋆ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/341cdf41-9155-4a1b-b56f-9d6e06d55c5e)
 ‎ ‎ ‎  ‎ ‎ ‎ ⋆ ⋆‎‎  ‎ ‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
-‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
-‎ ⋆ ‎ ‎ ‎  ‎  ⋆‎‎  ‎ ‎ ‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
+‎⋆‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
+‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
 
 
 ![BANNER.1](https://github.com/user-attachments/assets/cff70244-b66e-4243-9260-ce88de78b0d5)
