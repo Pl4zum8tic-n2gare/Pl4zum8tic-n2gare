@@ -72,7 +72,8 @@
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 * ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
  ‎  ‎˚★
-* ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
+* ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
+‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
 * ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
  feel free to interact or be buddies i like chilling & i LOVE c+h ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
 
