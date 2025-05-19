@@ -117,5 +117,9 @@ thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https
   ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ⋆.  ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)
 
 - ‎ ‎ ‎ ‎ ‎  ─── ⋆⋅☆⋅⋆ ──  「more info in strawpage」          ─── ⋆⋅☆⋅⋆ ──
+- ![image](https://github.com/user-attachments/assets/f3d2acd6-2234-4696-972c-c120b2ec75a3)
+- ![image](https://github.com/user-attachments/assets/1bbad2d2-8743-4ddc-9211-2eb76a549b18)
+
+
 
 
