@@ -6,7 +6,7 @@
 ₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  ‎ ‎ ⋆‎
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sebding a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ 
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎‎ ‎ ‎‎ 
 ![image](https://github.com/user-attachments/assets/513d69a5-073c-4ac4-b0ae-44385549beca)
 ![VIEWC](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎![image](https://github.com/user-attachments/assets/4197dd62-48fb-4553-b26b-22242878fa3f)
  ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ⋆‎ ‎‎‎ ‎  ⋆‎ ‎ ⋆‎
@@ -35,7 +35,7 @@
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
 - ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
 - ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
-‎ ‎ ‎ ‎  ‎**╰。akir、Iren。elricノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
+‎ ‎ ‎ ‎  ‎**╰。anver、Iren。elricノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
  ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。lanfan 、yuzuki 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
 
 
@@ -44,7 +44,7 @@
  ‎ ‎⋆ ‎ ‎ ‎ ‎⟡ ݁₊‎╰**unique nicknamesノ**‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/9a714129-d671-49ee-a301-0f4b35cbfa13)
   ‎ ‎ ‎‎  ⋆ ╰**common nicknamesノ⟡ ݁₊![image](https://github.com/user-attachments/assets/adac7a36-0b4e-4e3c-b26a-42541022b998)**       
 - **![image](https://github.com/user-attachments/assets/56f1f5a7-a5e5-46de-9ef5-f8822f31db74)
-  。KIDnaper、plastic、plazballzノ** ‎⋆‎![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。Env 、yuzu 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
+  。KIDnaper、plastic、plazballzノ** ‎⋆‎![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。pan 、yuzu 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
 
 - ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎ ‎ ⋆ ‎ ‎ ⋆  ‎ ‎ 『i love nicknames pla give more』
 -  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
