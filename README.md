@@ -36,7 +36,7 @@
 - ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
 - ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
 ‎ ‎ ‎ ‎  ‎**╰。akir、Iren。elricノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
- ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。Enver 、yuzuki 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
+ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。lanfan 、yuzuki 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
 
 
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎
