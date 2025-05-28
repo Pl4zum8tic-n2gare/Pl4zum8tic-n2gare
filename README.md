@@ -90,20 +90,6 @@ thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https
 ![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 
-⠀⠀-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎˚⋆‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎   ‎   ‎ ‎  ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰‎‼️DNI pls - **If you are one of the people, do not interact**‼️ノ
-*  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎  ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎→ Hazbin Hotel fans 
-*  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎╰ ‎ ‎dandys World 「unless ur not that much of brainrotter person or a mutal」ノ 
-* ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎   ‎  ‎  ‎   ‎   ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰˚★ Pr0shipperz Z00s ped0s Xenophobics ❌ノ 
-*  ⋆
-*─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅*
--   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ╰‼️DNIUF - 「 **it’s fine if u play like this but it’s not preferable 2 me** 」‼️ノ
-* ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆  ‎ ‎ ‎ ‎ ‎  ‎ ‎If you are one of the following, Id most likey want u 2 you dni.˚★ノ
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎╰‎‎Toxic ppl & serious role players 「unless I asked or in 2 be in a rp pls don’t」
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎‎   ‎   ‎ ‎  ‎   ‎   ‎  ‎ ‎  ‎ ‎  ⋆ ⋆ ‎ ‎  ‎ ‎ ‎‎‎‎→ Anyone below 10 or over 21
-* ‎ ‎ ‎ ‎ ‎  ⋆‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎I don’t prefer sexa jokes but it’s fine 「jokes like kissing & marrying are good」˚★ノ
-* ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ╰sprunki fandom pls be normal also the fandom is rlly youngノ
-*  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎  ‎   ‎    ‎     ‎   ‎ ‎   ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎╰*i dont like brainrot jokes, skibidi etc*ノ
-* **﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・**
 ![image](https://github.com/user-attachments/assets/f934bc4a-8b7e-4437-85b7-5593cd993ca8)
 **─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆**
 - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ⋆⋆‼️⋆ ‎ ‎ **PLEASE Interact**⠀⠀ ‼️⋆⋆⋆
