@@ -50,7 +50,12 @@
 -  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
 **「some arent even nicknames their titles ATP」.**
 ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
+
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
+
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+
 - ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
 ⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
   ‎ ⋆‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ⋆‎‎‎‎‎ ‎  ‎ ⋆‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎  ‎ ⋆‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎‎ ‎  ‎‎‎‎‎ ![image](https://github.com/user-attachments/assets/accdee9d-0a74-4555-9f35-cf8afa3333b3)
@@ -66,10 +71,13 @@
 - ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎‎ .‎ ‎‎ ‎⋆![image](https://github.com/user-attachments/assets/7bebfa2f-8361-4a02-9ac7-7eff2914fbad)
 ‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎⋆ ‎. ‎ ‎ ‎『**theese arent to strict! i dont care what u call me**』       ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/0789a4ca-210e-4941-b56a-59a35041ec58)
 
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
-![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
+
 
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
+
+![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+
 * ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
  ‎  ‎˚★
 * ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
@@ -83,30 +91,22 @@
 * ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
  click my 100281938 links thank u you'll learn more !
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
-thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e)
-
-
+thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
-![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
+![BANNER.3](https://github.com/user-attachments/assets/f934bc4a-8b7e-4437-85b7-5593cd993ca8)
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆⋆‼️⋆ ‎ ‎ **PLEASE Interact**⠀⠀ ‼️⋆⋆⋆
+- ‎ ‎╰*If you are one of these awesomes,, PLEASE DO interact!*˚★ノ
+-  ‎˚★⋆ ‎→ ╰. people like c+h or people who will spark up˚★ノ
+-  ‎   ‎╰.Dragon ball,Naruto, hunter x hunter, bungo stray dogs,
+-   .✦ ‎ ⋆ ‎Hollow knight, RainWorld, sky cotl any related fandomz ᓚ₍ ^ ^₎ノ
 
-![image](https://github.com/user-attachments/assets/f934bc4a-8b7e-4437-85b7-5593cd993ca8)
-**─── ⋆⋅☆⋅⋆ ─ ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆**
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ⋆⋆‼️⋆ ‎ ‎ **PLEASE Interact**⠀⠀ ‼️⋆⋆⋆
-- ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆  ‎╰*If you are one of the following, PLEASE DO interact!*˚★ノ
-* 
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎˚★⋆‎  ‎  ‎→ ╰.Cool people like c+h & chill or people who will spark up convos ノ
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎╰.Dragon ball,Naruto, hunter x hunter, bungo stray dogs,
-* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎─ ‎ ‎ ‎ ‎ ‎─ .✦  ‎ ⋆ ‎Hollow knight, RainWorld, sky cotl any related fandomz ᓚ₍ ^. .^₎ノ
-- **﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌﹌﹌・・・・・・・・・﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌・﹌﹌﹌﹌﹌﹌﹌**
-
-  ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎![image](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5)
- ‎ ‎ ‎ ‎ ⋆.  ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
 
 
 - ‎ ‎ ‎ ‎ ‎  ─── ⋆⋅☆⋅⋆ ──  「more info in strawpage」          ─── ⋆⋅☆⋅⋆ ──
-- ![image](https://github.com/user-attachments/assets/f3d2acd6-2234-4696-972c-c120b2ec75a3)
-- ![image](https://github.com/user-attachments/assets/1bbad2d2-8743-4ddc-9211-2eb76a549b18)
+
+  ### ![image](https://github.com/user-attachments/assets/1bbad2d2-8743-4ddc-9211-2eb76a549b18)
 
 
 
