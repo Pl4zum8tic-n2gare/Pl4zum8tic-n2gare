@@ -31,7 +31,7 @@
 
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
   
-   ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
+# ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
 - ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
 - ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
@@ -83,7 +83,7 @@
 * ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
 ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
 * ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
- feel free to interact or be buddies i like chilling & i LOVE c+h ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
+ feel free to interact or be buddies i LOVE c+h i can be shy by first but i appreaite the care ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
 
 * ┊ ┊ ![image](https://github.com/user-attachments/assets/645ae0e8-6e2d-4396-b4e5-708d054cf33a)
 ★⋆｡i love anime! I love action & silly ones I love those but also mystery&hollow games ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368)
