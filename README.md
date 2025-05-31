@@ -26,7 +26,7 @@
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
 
 
-![BANNER.1](https://github.com/user-attachments/assets/cff70244-b66e-4243-9260-ce88de78b0d5)
+![BANNER](https://files.catbox.moe/i0f6yl.png)
 
 
 ![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
