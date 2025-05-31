@@ -23,7 +23,7 @@
 ‎ ⋆‎   ‎⋆ ‎ ‎‎ ‎ ‎ ⋆‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/341cdf41-9155-4a1b-b56f-9d6e06d55c5e)
 ‎ ‎‎ ‎ ‎ ⋆  ‎‎ ⋆‎‎  ‎‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
 ‎⋆‎  ‎ ‎‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
-‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![iamg](https://github.com/user-attachments/assets/b76222bb-eb10-4b0e-957b-1cafd2b3dd63)
+‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
 
 
 ![BANNER](https://files.catbox.moe/i0f6yl.png)
