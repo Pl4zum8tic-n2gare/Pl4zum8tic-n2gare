@@ -27,10 +27,11 @@
 
 
 ![BANNER](https://files.catbox.moe/i0f6yl.png)
+![image](https://github.com/user-attachments/assets/cf181f91-9153-4153-bdb3-365997338a99)
 
 
   
-# ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
+ ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
 - ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
 - ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
@@ -50,10 +51,10 @@
 **「some arent even nicknames their titles ATP」.**
 ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
 ![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
+![image](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
 
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
 
 - ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
 ⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
@@ -72,10 +73,12 @@
 
 
 
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/d40526fd-c07f-4b45-8180-ce17cb1a9a04)
+
 ![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
 
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
+
 
 * ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
  ‎  ‎˚★
@@ -91,9 +94,12 @@
  click my 100281938 links thank u you'll learn more !
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
 thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81)
+
 ![3](https://files.catbox.moe/61fqtq.png)
-![image](https://github.com/user-attachments/assets/db406019-4e9c-48d2-a49a-196976df82ee)
+![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
+
+
 
 
 
@@ -110,7 +116,8 @@ thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https
 
 - ‎ ‎ ‎ ‎ ‎  ─── ⋆⋅☆⋅⋆ ──  「more info in strawpage」          ─── ⋆⋅☆⋅⋆ ──
 
-  ### ![image](https://github.com/user-attachments/assets/1bbad2d2-8743-4ddc-9211-2eb76a549b18)
+![image](https://github.com/user-attachments/assets/cfbe46d0-be8e-4021-9df9-e6f3c9dea2d6)
+
 
 
 
