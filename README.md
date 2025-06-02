@@ -54,7 +54,7 @@
 ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
-![image](https://github.com/user-attachments/assets/73e300e4-0856-46bd-8f53-17c5050aa9c9)
+![BANNWE](https://files.catbox.moe/0kkryr.png)
 ![image](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
 
 
