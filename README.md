@@ -82,41 +82,28 @@
 ![image](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
 
 
-* ┊ ┊ ┊ ┊ ┊ ┊**over here guys**  ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
+* ┊ ┊ ┊ ┊ ┊ ┊**i love sharing opinions in convos. please do not judge them. just tell me if their bad/problematic!** ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
  ‎  ‎˚★
-* ┊ ┊ ┊ ┊ ˚★⋆       ‎  ‎  ‎  ‎  ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
+* ┊ ┊ ┊ ┊ ˚★⋆i love talktive people! PLS int if u are! ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
 ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
 * ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
  feel free to interact or be buddies i LOVE c+h i can be shy by first but i appreaite the care ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
 
 * ┊ ┊ ![image](https://github.com/user-attachments/assets/645ae0e8-6e2d-4396-b4e5-708d054cf33a)
-★⋆｡i love anime! I love action & silly ones I love those but also mystery&hollow games ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368)
+★⋆｡i love anime! I love action & silly ones! but also mystery&puzzle games feel free 2 reccomend any! ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368)
  no romances sorryノ
 * ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
- click my 100281938 links thank u you'll learn more !
+  i love getting sent/gifted things! u should totally try my strawpage&Atabook makes me very happy i really appreciate it!!
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
-thank u for for visiting I appreciate ur time ^L^  ‎  ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
+if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
 ![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81)
 
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
 
 
-
-
-
-
--  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆⋆‼️⋆ ‎ ‎ **PLEASE Interact**⠀⠀ ‼️⋆⋆⋆
-- ‎ ‎╰*If you are one of these awesomes,, PLEASE DO interact!*˚★ノ
--  ‎˚★⋆ ‎→ ╰. people like c+h or people who will spark up˚★ノ
--  ‎   ‎╰.Dragon ball,Naruto, hunter x hunter, bungo stray dogs,
--   .✦ ‎ ⋆ ‎Hollow knight, RainWorld, sky cotl any related fandomz ᓚ₍ ^ ^₎ノ
-
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
-
-
-- ‎ ‎ ‎ ‎ ‎  ─── ⋆⋅☆⋅⋆ ──  「more info in strawpage」          ─── ⋆⋅☆⋅⋆ ──
 
 ![line](https://files.catbox.moe/a9wurs.png)
 
