@@ -84,14 +84,14 @@
 
 * ┊ ┊ ┊ ┊ ┊ ┊**i love sharing opinions in convos. please do not judge them. just tell me if their bad/problematic!** ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
  ‎  ‎˚★
-* ┊ ┊ ┊ ┊ ˚★⋆i love talktive people! PLS int if u are! ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
+* ┊ ┊ ┊ ┊ ˚★⋆i love talktive people! PLS int if u are! i like chatting abt charcter personailty/headcanons ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
 ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
 * ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
  feel free to interact or be buddies i LOVE c+h i can be shy by first but i appreaite the care ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
 
 * ┊ ┊ ![image](https://github.com/user-attachments/assets/645ae0e8-6e2d-4396-b4e5-708d054cf33a)
-★⋆｡i love anime! I love action & silly ones! but also mystery&puzzle games feel free 2 reccomend any! ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368)
- no romances sorryノ
+★⋆｡i love anime! I love action & silly ones! but also mystery&puzzle games feel free 2 reccomend any! ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368) ![image](https://github.com/user-attachments/assets/80443e4f-f06d-4f71-a03a-3b8b431bbcde)
+
 * ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
   i love getting sent/gifted things! u should totally try my strawpage&Atabook makes me very happy i really appreciate it!!
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
