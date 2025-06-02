@@ -77,7 +77,7 @@
 
 ![image](https://github.com/user-attachments/assets/d40526fd-c07f-4b45-8180-ce17cb1a9a04)
 
-![image](https://github.com/user-attachments/assets/ce7992b2-00a8-4d27-92ae-47e9194fe348)
+![BANNER](https://files.catbox.moe/3n1di3.png)
 
 ![image](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
 
