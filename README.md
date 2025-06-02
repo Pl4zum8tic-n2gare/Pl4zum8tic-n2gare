@@ -101,7 +101,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
 
 
 
