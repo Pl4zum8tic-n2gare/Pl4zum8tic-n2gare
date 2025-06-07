@@ -2,7 +2,7 @@
 
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[gimmicks](https://plart.straw.page) ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
-    ₊⊹**[Reply](https://replaz.straw.page)** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
+    ₊⊹**[ata](https://pl3zma-n4gare.atabook.org/)/[Reply](https://replaz.straw.page)** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
@@ -100,12 +100,26 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
+* ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![pix](https://github.com/user-attachments/assets/2b2e81e6-987b-4d97-89c9-c7cbe71a12c6) if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ (followers don't count) .![image](https://github.com/user-attachments/assets/59c6131d-ed0a-4056-ba32-e48cc39e140e).
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
 
+* ![image](https://github.com/user-attachments/assets/1748d80e-088b-4d4f-bd7a-66fca08abfbf)
+![lef](https://github.com/user-attachments/assets/16f9b5d6-097f-48ff-9f06-57433d81d1a4)
+ ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ![image](https://github.com/user-attachments/assets/7059198d-2836-4459-9299-222b4f0da749).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/943be0c7-2cff-458e-ac98-dbabe3d1abcb)‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/49542951-aa18-4aee-8d88-a05b265aff53)
 
+ 
+
+* ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
+ **PROSHIPPERS!!** ![image](https://github.com/user-attachments/assets/db19c8bc-42c3-49a8-922e-e4a029c65504)
+ong do not even THINK about interacting. THOSE SHIPS ARE REALLY WEIRD SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
+* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just straight up weird & very… "intresting!" i wouldnt want to have someone like that around me ![image](https://github.com/user-attachments/assets/904c10f5-bded-45f1-bd38-dddc1b4bdd08)
 
 ![line](https://files.catbox.moe/a9wurs.png)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
+
+
+
+
 
 
 
