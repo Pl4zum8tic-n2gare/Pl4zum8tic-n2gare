@@ -104,15 +104,13 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 
 
 * ![image](https://github.com/user-attachments/assets/1748d80e-088b-4d4f-bd7a-66fca08abfbf)
-![lef](https://github.com/user-attachments/assets/16f9b5d6-097f-48ff-9f06-57433d81d1a4)
  ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ![image](https://github.com/user-attachments/assets/7059198d-2836-4459-9299-222b4f0da749).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/943be0c7-2cff-458e-ac98-dbabe3d1abcb)‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/49542951-aa18-4aee-8d88-a05b265aff53)
 
  
 
 * ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
- **PROSHIPPERS!!** ![image](https://github.com/user-attachments/assets/db19c8bc-42c3-49a8-922e-e4a029c65504)
-ong do not even THINK about interacting. THOSE SHIPS ARE REALLY WEIRD SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
-* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just straight up weird & very… "intresting!" i wouldnt want to have someone like that around me ![image](https://github.com/user-attachments/assets/904c10f5-bded-45f1-bd38-dddc1b4bdd08)
+**PROSHIPPERS!!** ong do not even THINK about interacting. THOSE SHIPS ARE REALLY WEIRD SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
+* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just straight up weird & very… "intresting!" i wouldnt want to have someone like that around me ![image](https://github.com/user-attachments/assets/904c10f5-
 
 ![line](https://files.catbox.moe/a9wurs.png)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)
