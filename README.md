@@ -28,7 +28,7 @@
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
 
 
-![BANNER](https://files.catbox.moe/i0f6yl.png)
+![[BANNER](https://files.catbox.moe/i0f6yl.png](https://camo.githubusercontent.com/6cc9f8d2fe674b62ee2e37ea93f64599afbcf05aebc724fca6cbcbc7ef077150/68747470733a2f2f66696c65732e636174626f782e6d6f652f69306636796c2e706e67)
 ![image](https://github.com/user-attachments/assets/cf181f91-9153-4153-bdb3-365997338a99)
 
 
@@ -54,7 +54,7 @@
 ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
-![BANNWE](https://files.catbox.moe/0kkryr.png)
+![BANNWE](https://github.com/user-attachments/assets/3c404ad8-7add-44c6-8ee8-ac8cfacdc615)
 ![image](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
 
 
