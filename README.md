@@ -13,13 +13,14 @@
 ![VIEWC](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet)‎ ‎![image](https://github.com/user-attachments/assets/4197dd62-48fb-4553-b26b-22242878fa3f)
  ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ⋆‎ ‎‎‎ ‎  ⋆‎ ‎ ⋆‎
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
-「my **beloveds**」![h](https://64.media.tumblr.com/17514e280389103fa76c0da7f342a11b/3681942004ce372b-44/s75x75_c1/3873264501d5e213652a289ca05dbf6cca2a5d3e.gifv)
+「my **beloveds**」
+**: <<**
 ![g](https://64.media.tumblr.com/a06c0bda406b81885463dfa7fbba3127/3681942004ce372b-e4/s75x75_c1/8cabb2c6650154f10142ca7ef18bf1586675581e.gifv)
-**: <<** ![k](https://64.media.tumblr.com/6599f3c1910ea98db63d8d10b952d15f/3681942004ce372b-e4/s75x75_c1/ba51ba5ebb3aab55bc1c07a8c126cb3013fee89d.gifv)
+![h](https://64.media.tumblr.com/17514e280389103fa76c0da7f342a11b/3681942004ce372b-44/s75x75_c1/3873264501d5e213652a289ca05dbf6cca2a5d3e.gifv) ![k](https://64.media.tumblr.com/6599f3c1910ea98db63d8d10b952d15f/3681942004ce372b-e4/s75x75_c1/ba51ba5ebb3aab55bc1c07a8c126cb3013fee89d.gifv)
 ![z](https://64.media.tumblr.com/8f28e46f55260a99e0674220896193dd/3681942004ce372b-2a/s75x75_c1/abc9d4c91d13c9ebd9d355428a80ef56f1d1c422.gifv)
- ![p](https://64.media.tumblr.com/be19199cafbb3a4dd51acd085cd34a6b/3681942004ce372b-d0/s75x75_c1/05d852ce8155b4e198c33985068cf664130bc6fa.gifv)
- ![c](https://64.media.tumblr.com/63b3f70c872570ad1caf8bfbb34fe1cf/3681942004ce372b-6d/s75x75_c1/90f9ad057a5d811f779c55b36b9e02642c596604.gifv)
- ![r](https://64.media.tumblr.com/d4601306e667b633aac7b6d2ce6a3170/3681942004ce372b-5e/s75x75_c1/f341f89ed1f785cb75d496af38e252077be0de1e.gifv)
+![p](https://64.media.tumblr.com/be19199cafbb3a4dd51acd085cd34a6b/3681942004ce372b-d0/s75x75_c1/05d852ce8155b4e198c33985068cf664130bc6fa.gifv)
+![c](https://64.media.tumblr.com/63b3f70c872570ad1caf8bfbb34fe1cf/3681942004ce372b-6d/s75x75_c1/90f9ad057a5d811f779c55b36b9e02642c596604.gifv)
+![r](https://64.media.tumblr.com/d4601306e667b633aac7b6d2ce6a3170/3681942004ce372b-5e/s75x75_c1/f341f89ed1f785cb75d496af38e252077be0de1e.gifv)
 ![image](https://github.com/user-attachments/assets/e2f38b2b-62d3-4ca3-8e20-4f6d323ec7c9)
  ⋆‎‎ ‎‎  ‎‎ ⋆‎‎  ‎‎  ‎ ⋆        ⋆‎‎‎ ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
 ‎  ⋆‎‎  ‎‎ ‎ ⋆‎ ‎⋆‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
