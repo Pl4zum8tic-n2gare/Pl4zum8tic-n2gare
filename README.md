@@ -101,12 +101,12 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
-* ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![pix](https://github.com/user-attachments/assets/2b2e81e6-987b-4d97-89c9-c7cbe71a12c6) if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ ![boy](https://64.media.tumblr.com/284f2b8d1e4a43d0180113d6f1351c3d/tumblr_inline_mxsg28l7Vj1rrry1n.png)
-* (followers don't count) .![image](https://64.media.tumblr.com/ec37a1cfb3bf91b43fd915f5f253a934/tumblr_inline_msbui2Euvu1rkldve.gif). ⋆‎ ![img](https://enchantments.carrd.co/assets/images/gallery04/6c691ed8.gif?v=82b4b006) ⋆‎ .  ‎⋆‎ ‎![img](https://files.catbox.moe/ierezj.png) ⋆‎ ‎ ‎ . ![img](https://biscuit.crd.co/assets/images/gallery03/0bbea1de.gif?v=532faf5f) ![img](https://64.media.tumblr.com/af55ff25094a96eb76caa06e3c9b4ed0/tumblr_inline_mxtervQguS1rrry1n.gif)
+* ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![pix](https://github.com/user-attachments/assets/2b2e81e6-987b-4d97-89c9-c7cbe71a12c6) if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ **!!!**
+* (followers don't count) .![image](https://64.media.tumblr.com/ec37a1cfb3bf91b43fd915f5f253a934/tumblr_inline_msbui2Euvu1rkldve.gif). ⋆‎ ![img](https://enchantments.carrd.co/assets/images/gallery04/6c691ed8.gif?v=82b4b006) ⋆‎ .  ‎⋆‎ ‎![img](https://files.catbox.moe/ierezj.png) ⋆‎ ‎ ‎ . ![img](https://biscuit.crd.co/assets/images/gallery03/0bbea1de.gif?v=532faf5f) ![img](https://64.media.tumblr.com/af55ff25094a96eb76caa06e3c9b4ed0/tumblr_inline_mxtervQguS1rrry1n.gif) ![img](https://files.catbox.moe/g7k0kb.gif) ![img](https://files.catbox.moe/xecmml.gif)⋆‎ . **>3<** ⋆‎ . ![img](https://files.catbox.moe/e04nnj.gif)
 
 
 * ![image](https://files.catbox.moe/fr80g4.gif)
- ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ♢ ![image](https://pix.crd.co/assets/images/gallery18/ef4a566a.png?v=ca70c28c).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ .‎ ‎ ‎‎ ⋆‎![hi](https://files.catbox.moe/lqzhzc.gif) ‎⋆‎‎ .‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif) 
+ ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ♢ ![image](https://pix.crd.co/assets/images/gallery18/ef4a566a.png?v=ca70c28c).‎ ‎ ‎‎‎![img](‎‎https://biscuit.crd.co/assets/images/gallery04/5049f618.gif?v=532faf5f) ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ .‎ ‎ ‎‎ ⋆‎![hi](https://files.catbox.moe/lqzhzc.gif) ‎⋆‎‎ .‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif) 
 
 * ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
 **PROSHIPPERS!!** ong do not even THINK about interacting. THOSE SHIPS ARE REALLY STINKY SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
