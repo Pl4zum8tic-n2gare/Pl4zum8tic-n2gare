@@ -14,7 +14,7 @@
  ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ⋆‎ ‎‎‎ ‎  ⋆‎ ‎ ⋆‎
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
 「my **beloveds**」
-**: <<**
+**: ![img](https://files.catbox.moe/xk09u8.gif)<<**
 ![g](https://64.media.tumblr.com/a06c0bda406b81885463dfa7fbba3127/3681942004ce372b-e4/s75x75_c1/8cabb2c6650154f10142ca7ef18bf1586675581e.gifv)
 ![h](https://64.media.tumblr.com/17514e280389103fa76c0da7f342a11b/3681942004ce372b-44/s75x75_c1/3873264501d5e213652a289ca05dbf6cca2a5d3e.gifv) ![k](https://64.media.tumblr.com/6599f3c1910ea98db63d8d10b952d15f/3681942004ce372b-e4/s75x75_c1/ba51ba5ebb3aab55bc1c07a8c126cb3013fee89d.gifv)
 ![z](https://64.media.tumblr.com/8f28e46f55260a99e0674220896193dd/3681942004ce372b-2a/s75x75_c1/abc9d4c91d13c9ebd9d355428a80ef56f1d1c422.gifv)
