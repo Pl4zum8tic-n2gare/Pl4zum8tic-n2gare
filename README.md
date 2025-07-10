@@ -60,7 +60,11 @@
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
 ![BANNWE](https://github.com/user-attachments/assets/3c404ad8-7add-44c6-8ee8-ac8cfacdc615)
-![image](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
+![baneebottom](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
+![image](https://github.com/user-attachments/assets/c04e1e03-c6e6-49b3-b1e8-a1f5745eda2d)
+![image](https://github.com/user-attachments/assets/0d473692-ccda-45c4-8d0d-a09ac5e55276)
+![image](https://github.com/user-attachments/assets/cbbab91e-62cf-483d-9662-cded1c99f852)
+
 
 
 - ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
@@ -84,7 +88,10 @@
 
 ![BANNER](https://files.catbox.moe/3n1di3.png)
 
-![image](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
+![banneebottom](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
+![image](https://github.com/user-attachments/assets/d0d9614c-6e33-441d-bb1a-d8c8d7d594c4)
+![image](https://github.com/user-attachments/assets/224564ba-8725-414d-a4f0-c8384ebb6026)
+![image](https://github.com/user-attachments/assets/e8f1fe45-2048-4669-a095-b05cf20a6232)
 
 
 * ┊ ┊ ┊ ┊ ┊ ┊**i love sharing opinions in convos. please do not judge them. just tell me if their bad/problematic!** ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
