@@ -34,7 +34,11 @@
 
 
   
- ![sticker](https://github.com/user-attachments/assets/2c4aa979-ab76-4fe3-b797-12cdf6d76ab5) ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4) ![image](https://github.com/user-attachments/assets/3ed6293f-d064-423f-a6b9-1245c90d7ae6)![image](https://github.com/user-attachments/assets/0d255463-d02c-423f-99d0-7e674d997cbb) ![image](https://github.com/user-attachments/assets/aa57292c-3bfe-4710-9712-50bebeb93fb7)
+![image](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
+ ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
+![image](https://github.com/user-attachments/assets/fd06f82a-f099-4fd0-9d11-940dbefe272f)
+![image](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
+![image](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
 - ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
 - ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
