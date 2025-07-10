@@ -115,7 +115,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 * ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just weird & i dont want to have someone like that around me![image](https://github.com/user-attachments/assets/0e34900d-7401-4b28-ba5e-5db5ea3fd300)
 
 ![line](https://files.catbox.moe/a9wurs.png)
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![hi](https://64.media.tumblr.com/12c7c3408e0f0596d50003fdbab30433/tumblr_inline_mxsg2jafoF1rrry1n.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://files.catbox.moe/iklbu0.gif)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![hi](https://files.catbox.moe/he191d.png)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![hi](https://64.media.tumblr.com/12c7c3408e0f0596d50003fdbab30433/tumblr_inline_mxsg2jafoF1rrry1n.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://64.media.tumblr.com/a24084628752ebe512497ff4aaf23cec/tumblr_inline_mxsg3h0QOt1rrry1n.gif)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://files.catbox.moe/iklbu0.gif)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![hi](https://64.media.tumblr.com/a24084628752ebe512497ff4aaf23cec/tumblr_inline_mxsg3h0QOt1rrry1n.gif)
 
 
 
