@@ -102,17 +102,17 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
 * ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![pix](https://github.com/user-attachments/assets/2b2e81e6-987b-4d97-89c9-c7cbe71a12c6) if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢
-* (followers don't count) .![image](https://github.com/user-attachments/assets/59c6131d-ed0a-4056-ba32-e48cc39e140e).
+* (followers don't count) .![image](https://64.media.tumblr.com/ec37a1cfb3bf91b43fd915f5f253a934/tumblr_inline_msbui2Euvu1rkldve.gif).
 
 
-* ![image]([https://github.com/user-attachments/assets/1748d80e-088b-4d4f-bd7a-66fca08abfbf](https://files.catbox.moe/zgsx8y.gif))
- ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ![image](https://github.com/user-attachments/assets/7059198d-2836-4459-9299-222b4f0da749).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/943be0c7-2cff-458e-ac98-dbabe3d1abcb)‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/49542951-aa18-4aee-8d88-a05b265aff53)
+* ![image](https://files.catbox.moe/fr80g4.gif)
+ ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ![image](https://github.com/user-attachments/assets/7059198d-2836-4459-9299-222b4f0da749).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif)
 
  
 
 * ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
 **PROSHIPPERS!!** ong do not even THINK about interacting. THOSE SHIPS ARE REALLY STINKY SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
-* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just weird & i dont want to have someone like that around me![image](https://github.com/user-attachments/assets/0e34900d-7401-4b28-ba5e-5db5ea3fd300)
+* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just weird & i dont want to have someone like that around me![image](https://files.catbox.moe/iklbu0.gif)
 
 ![line](https://files.catbox.moe/a9wurs.png)
  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ![greec](https://64.media.tumblr.com/060018a81373706f511278ad6b5732d0/tumblr_inline_mxsg3hFOM81rrry1n.gif)‎ ‎![jappy](https://64.media.tumblr.com/af2fb0fe64e050cb43ea3b895a5298e3/tumblr_inline_mxsg3jmgRz1rrry1n.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![vroom](https://64.media.tumblr.com/e5ef4177b4742ba4a1bda8245a86c4e0/70207c117a4ae28c-fe/s250x400/c428ad8d88d9ce4771ed6d25c91d5b35d33968ef.gif)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://files.catbox.moe/1z77bt.png)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![france](https://64.media.tumblr.com/a24084628752ebe512497ff4aaf23cec/tumblr_inline_mxsg3h0QOt1rrry1n.gif) ![sweed](https://64.media.tumblr.com/f26f15fdc6e8f158625667435de406be/tumblr_inline_mxsg3cVIkN1rrry1n.gif)
