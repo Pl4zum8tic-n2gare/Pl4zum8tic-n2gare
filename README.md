@@ -102,7 +102,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
 * ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![hey](https://github.com/user-attachments/assets/8d966bce-94df-429f-b8d5-973d3f899264)
-) if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ **!!!**
+ if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ **!!!**
 * (followers or atabook msgs don't count) .![image](https://64.media.tumblr.com/ec37a1cfb3bf91b43fd915f5f253a934/tumblr_inline_msbui2Euvu1rkldve.gif). ⋆‎ ![img](https://enchantments.carrd.co/assets/images/gallery04/6c691ed8.gif?v=82b4b006) ⋆‎ .  ‎⋆‎ ‎![boy](https://files.catbox.moe/ierezj.png) ⋆‎ ‎ ‎ . ![img](https://64.media.tumblr.com/e1b450fa45bb571819af3c5427f0f1bf/tumblr_inline_mxsg39u9b61rrry1n.gif)⋆‎ ⋆‎ .![img](https://files.catbox.moe/lwqn29.gif) ⋆‎ ![img](https://files.catbox.moe/g7k0kb.gif) ![img](https://files.catbox.moe/xecmml.gif)⋆‎ . ⋆‎  ⋆‎ . ![img](https://files.catbox.moe/e04nnj.gif)⋆‎ . ⋆‎ .
 
 
