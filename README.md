@@ -105,7 +105,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 * (followers don't count) .![image](https://github.com/user-attachments/assets/59c6131d-ed0a-4056-ba32-e48cc39e140e).
 
 
-* ![image](https://github.com/user-attachments/assets/1748d80e-088b-4d4f-bd7a-66fca08abfbf)
+* ![image]([https://github.com/user-attachments/assets/1748d80e-088b-4d4f-bd7a-66fca08abfbf](https://files.catbox.moe/zgsx8y.gif))
  ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ![image](https://github.com/user-attachments/assets/7059198d-2836-4459-9299-222b4f0da749).‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/943be0c7-2cff-458e-ac98-dbabe3d1abcb)‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/49542951-aa18-4aee-8d88-a05b265aff53)
 
  
@@ -115,7 +115,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 * ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just weird & i dont want to have someone like that around me![image](https://github.com/user-attachments/assets/0e34900d-7401-4b28-ba5e-5db5ea3fd300)
 
 ![line](https://files.catbox.moe/a9wurs.png)
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![hi](https://64.media.tumblr.com/12c7c3408e0f0596d50003fdbab30433/tumblr_inline_mxsg2jafoF1rrry1n.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/8cc3e01e-ee7e-4d3e-885a-13ed28b9020c)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![hi](https://64.media.tumblr.com/08dae85523cf92fa085301d7430286bf/tumblr_inline_mxteo6uVOk1rrry1n.gif)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![hi](https://64.media.tumblr.com/12c7c3408e0f0596d50003fdbab30433/tumblr_inline_mxsg2jafoF1rrry1n.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![ka](https://github.com/user-attachments/assets/3a024948-c258-4310-b89f-7fbfc8db0af5) ⋆‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/f74f37ce-8044-4f4b-922e-556314ec9dde)‎ ‎ ‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎ ⋆![image](https://files.catbox.moe/iklbu0.gif)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![hi](https://files.catbox.moe/he191d.png)
 
 
 
