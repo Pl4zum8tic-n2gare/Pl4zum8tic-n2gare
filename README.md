@@ -107,7 +107,7 @@
 * ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
   i love getting sent/gifted things! u should totally try my strawpage&Atabook makes me very happy i really appreciate it!!
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
-if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![clover](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81)   ‎  ‎  ![hi](https://files.catbox.moe/r81ybf.gif) ![hi](https://files.catbox.moe/ye7qpl.gif) ![hi](https://files.catbox.moe/6mgg2o.gif) ![hi](https://files.catbox.moe/6vkmzr.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
+if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![clover](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e)  ![hi](https://files.catbox.moe/r81ybf.gif) ![hi](https://files.catbox.moe/ye7qpl.gif) ![hi](https://files.catbox.moe/6mgg2o.gif) ‎![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
 
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
