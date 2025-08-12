@@ -70,7 +70,7 @@
 - ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
 ⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
   ‎ ⋆‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ⋆‎‎‎‎‎ ‎  ‎ ⋆‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎  ‎ ⋆‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎‎ ‎  ‎‎‎‎‎ ![image](https://github.com/user-attachments/assets/accdee9d-0a74-4555-9f35-cf8afa3333b3)
-₊˚ **⧽╰ ⌞Any Pronouns i IDC. ⌝ノ**
+₊˚ **⧽╰ ⌞Any Pronouns i IDC. ⌝ノ** ![hi](https://files.catbox.moe/leevuf.gif)
 
 -  ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ![meo](https://github.com/user-attachments/assets/362a9eee-0e6e-4124-90f0-d0a25886c683) ‎ ‎ ‎ ‎.‎ ‎‎ ‎
@@ -107,8 +107,7 @@
 * ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
   i love getting sent/gifted things! u should totally try my strawpage&Atabook makes me very happy i really appreciate it!!
 * ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
-if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![image](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
-![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81)   ‎  ‎  ![hi](https://files.catbox.moe/r81ybf.gif) ![hi](https://files.catbox.moe/ye7qpl.gif) ![hi](https://files.catbox.moe/6mgg2o.gif) ![hi](https://files.catbox.moe/6vkmzr.gifv)
+if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![clover](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e) ‎![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81)   ‎  ‎  ![hi](https://files.catbox.moe/r81ybf.gif) ![hi](https://files.catbox.moe/ye7qpl.gif) ![hi](https://files.catbox.moe/6mgg2o.gif) ![hi](https://files.catbox.moe/6vkmzr.gifv)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
 
 ![3](https://files.catbox.moe/61fqtq.png)
 ![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
