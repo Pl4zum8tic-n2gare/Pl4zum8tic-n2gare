@@ -121,7 +121,7 @@ if im slow please dont get mad. im not that knowledgeable BC of family issues. e
 
 
 * ![image](https://files.catbox.moe/fr80g4.gif)
- ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make hitler jokes.* <\3 ♢ ![image](https://pix.crd.co/assets/images/gallery18/ef4a566a.png?v=ca70c28c).‎ ‎ ‎‎‎![img](https://files.catbox.moe/sykr4f.gif) ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ .‎ ‎ ‎‎ ⋆‎![hi](https://files.catbox.moe/lqzhzc.gif) ‎⋆‎‎ .‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif) 
+ ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make r@pe jokes.* <\3 ♢ ![image](https://pix.crd.co/assets/images/gallery18/ef4a566a.png?v=ca70c28c).‎ ‎ ‎‎‎![img](https://files.catbox.moe/sykr4f.gif) ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ .‎ ‎ ‎‎ ⋆‎![hi](https://files.catbox.moe/lqzhzc.gif) ‎⋆‎‎ .‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif) 
 
 * ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
 **PROSHIPPERS!!** ong do not even THINK about interacting. THOSE SHIPS ARE REALLY STINKY SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
