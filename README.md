@@ -73,48 +73,5 @@
 ![image](https://github.com/user-attachments/assets/cbbab91e-62cf-483d-9662-cded1c99f852)
 
 
-
-![image](https://github.com/user-attachments/assets/d40526fd-c07f-4b45-8180-ce17cb1a9a04)
-
-![BANNER](https://files.catbox.moe/3n1di3.png)
-
-![banneebottom](https://github.com/user-attachments/assets/49b9a2c1-f2b0-4458-981a-aca23fea99f2)
-![image](https://github.com/user-attachments/assets/d0d9614c-6e33-441d-bb1a-d8c8d7d594c4)
-![image](https://github.com/user-attachments/assets/224564ba-8725-414d-a4f0-c8384ebb6026)
-![image](https://github.com/user-attachments/assets/e8f1fe45-2048-4669-a095-b05cf20a6232)
-
-
-* ┊ ┊ ┊ ┊ ┊ ┊**i love sharing opinions in convos. please do not judge them. just tell me if their bad/problematic!** ‎ ![image](https://github.com/user-attachments/assets/b66a3106-6bae-48b0-a9e4-a3036d944232)
- ‎  ‎˚★
-* ┊ ┊ ┊ ┊ ˚★⋆i love talktive people! PLS int if u are! i like chatting abt charcter personailty/headcanons ![image](https://github.com/user-attachments/assets/71e62503-1be9-4151-b56b-5a568b16d992)
-‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ⋆ ˚★  ‎ 
-* ┊ ┊ ┊ ⋆![image](https://github.com/user-attachments/assets/e79b9dd9-80c2-448a-a512-f59d0bc176b9)
- feel free to interact or be buddies i LOVE c+h i can be shy by first but i appreaite the care ![image](https://github.com/user-attachments/assets/ff801e83-29e3-4f88-bc89-0de3abb7ab42)
-
-* ┊ ┊ ![image](https://github.com/user-attachments/assets/645ae0e8-6e2d-4396-b4e5-708d054cf33a)
-★⋆｡i love anime! I love action & silly ones! but also mystery&puzzle games feel free 2 reccomend any! ![image](https://github.com/user-attachments/assets/31251c26-518b-426e-a8b5-2dc55cb2a368) ![image](https://github.com/user-attachments/assets/80443e4f-f06d-4f71-a03a-3b8b431bbcde)
-
-* ┊ ★![image](https://github.com/user-attachments/assets/72cfff03-d1f5-4407-ad69-88ddd1a1f453)
-  i love getting sent/gifted things! u should totally try my strawpage&Atabook makes me very happy i really appreciate it!!
-* ★⋆ ┊ . ˚ ![image](https://github.com/user-attachments/assets/c19dc3d4-db65-4f72-8dee-95ac0c4c564e)
-if im slow please dont get mad. im not that knowledgeable BC of family issues. explain it instead ^L^ ‎ ˚★ ![clover](https://github.com/user-attachments/assets/1f6c1e3b-8822-4beb-9a97-0e3d9c80710e)  ![hi](https://files.catbox.moe/r81ybf.gif) ![hi](https://files.catbox.moe/ye7qpl.gif) ![hi](https://files.catbox.moe/6mgg2o.gif) ‎![image](https://github.com/user-attachments/assets/691b185f-b119-4e87-b4d1-ba8f4cbf1f81) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   
-
-![3](https://files.catbox.moe/61fqtq.png)
-![image](https://github.com/user-attachments/assets/84a50bd3-54a3-42c3-ae2d-344140276e9e)
-![image](https://github.com/user-attachments/assets/56318407-7d87-4001-b755-cdf95b01533b)
-![image](https://github.com/user-attachments/assets/7ccad009-d0c8-4e9c-8123-9a82c93196e8)
-![image](https://github.com/user-attachments/assets/eb4561a7-b75c-4887-a300-5050ba68f389)
-* ┊ ┊ ┊ ┊ ┊ ┊ ♦︎・![hey](https://github.com/user-attachments/assets/8d966bce-94df-429f-b8d5-973d3f899264)
- if over **19+ INTERACT WITH CARE!** UNLESS were already known mutals thamks.♢ **!!!**
-* (followers or atabook msgs don't count) .![image](https://64.media.tumblr.com/ec37a1cfb3bf91b43fd915f5f253a934/tumblr_inline_msbui2Euvu1rkldve.gif).   ![img](https://enchantments.carrd.co/assets/images/gallery04/6c691ed8.gif?v=82b4b006) ⋆‎   ‎ ‎ ‎   ‎⋆‎ ‎![boy](https://files.catbox.moe/ierezj.png) ⋆‎  ‎ ‎ ‎ ‎ .![img](https://files.catbox.moe/lwqn29.gif) ⋆‎ ![img](https://files.catbox.moe/g7k0kb.gif) ![img](https://files.catbox.moe/xecmml.gif)   . ![img](https://files.catbox.moe/e04nnj.gif)⋆‎ .   .
-
-
-* ![image](https://files.catbox.moe/fr80g4.gif)
- ┊ ┊ ┊ ┊♧ .BASIC dni list! wtv! but *PLEASE do not make r@pe jokes.* <\3 ♢ ![image](https://pix.crd.co/assets/images/gallery18/ef4a566a.png?v=ca70c28c).‎ ‎ ‎‎‎![img](https://files.catbox.moe/sykr4f.gif) ‎ ‎ ‎ ‎![image](https://files.catbox.moe/zsnktw.gif)‎ .‎ ‎ ‎‎ ⋆‎![hi](https://files.catbox.moe/lqzhzc.gif) ‎⋆‎‎ .‎ ![image](https://tomomi.neocities.org/pixeles2/311.gif) 
-
-* ┊ ┊ ┊![image](https://github.com/user-attachments/assets/17f8b1d6-a6e9-48cd-90b1-772c1f3cbdfc)
-**PROSHIPPERS!!** ong do not even THINK about interacting. THOSE SHIPS ARE REALLY STINKY SO PLEASE.![image](https://github.com/user-attachments/assets/b7c5f9e0-76dc-49cc-8657-cec470b7e8d1)
-* ┊ ┊ ![image](https://github.com/user-attachments/assets/a4993198-ce5c-488d-b0a0-fc09833f1c56) . ♠︎・**problematic pride flagz** just weird & i dont want to have someone like that around me!⋆‎ ![image](https://enchantments.carrd.co/assets/images/gallery04/8c98acaf.gif?v=82b4b006) .
-
 ![line](https://files.catbox.moe/a9wurs.png) ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
 ![m](https://files.catbox.moe/zkqldn.png)
