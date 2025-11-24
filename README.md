@@ -39,23 +39,27 @@
 ‎ ‎‎ ‎ ‎ ⋆  ‎‎ ⋆‎‎  ‎‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
 ‎⋆‎  ‎ ‎‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
+‎ ‎ ‎ ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" /> <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .idc
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
+<table>
+  <tr>
+  
+ <tr>
+<table>
+  <tr>
+    <th>
+      $\color{purple}{\textsf{My namez: PLAZMA Koichi Yama Enver Elrik}}$ <br>
+      $\color{blueviolet}{\textsf{mostly offtabz! and i reply very slow..}}$ <br>
+      $\color{purple}{\textsf{multiple styles? i dont mind if u take inspos}}$ <br>
+      $\color{blueviolet}{\textsf{feel free 2 int im shy but dont be scared i love talktives}}$ <br>
+      $\color{purple}{\textsf{i got extremely bad memory so be patient plz!! }}$ <br>
+      $\color{blueviolet}{\textsf{dont vent to me if you want good advice}}$ <br>
+      $\color{purple}{\textsf{intrests: CBL, FMA, ACE, and lots more!! u can check straw}}$ <br>
+      $\color{blueviolet}{\textsf{sharing opnions in convos is super intruging to me heh}}$ <br>
+</th>
+</tr>
+</table>
 
-‎<p align = "center"> ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ </p>
- ‎<p align = "center"> ⋆‎ ‎‎ ‎![h](https://64.media.tumblr.com/e66b3f37638717eef550f7e76bcca8d4/98ec710d1724aa70-c8/s75x75_c1/25f5a0ef0d5919ec47ee509e221b57b7e19ed12e.gifv) ‎‎ ‎**╰、UNUSED Names。ノ **‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** ⋆.![m](https://64.media.tumblr.com/59823d244c9a7611fd926407df7a2d64/98ec710d1724aa70-7c/s75x75_c1/ac5e4bed7adfbc9e19360f651703acf3772bc4ee.gifv)
- ‎<p align = "center"> ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
-‎ ⋆ ‎**╰。enver、yama。koichiノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎‎‎‎ ‎‎‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
- ‎ ‎ ‎ ‎⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。elrik 、yuzu 。ノ** .⋆ ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
-‎ ‎ ‎ ‎
- ‎<p align = "center"> ⋆![image](https://github.com/user-attachments/assets/fd451eb0-644e-4a2b-9dc3-5beb0470f7aa)
- ‎ ‎⋆ ‎ ‎ ‎ ‎⟡ ݁₊‎╰**unique nicknamesノ**‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ![image](https://github.com/user-attachments/assets/9a714129-d671-49ee-a301-0f4b35cbfa13)
-  ‎  ⋆ ╰**common nicknamesノ ⟡ ݁ ₊  ![image](https://github.com/user-attachments/assets/adac7a36-0b4e-4e3c-b26a-42541022b998)**       
- ‎<p align = "center"> **![image](https://github.com/user-attachments/assets/56f1f5a7-a5e5-46de-9ef5-f8822f31db74)
-  。eel、plastic、yewzooノ** ‎⋆‎ ‎‎ ![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。rik 、ichi 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
-
- ‎<p align = "center"> ⋆‎‎『i love nicknames pla give more』‎‎⋆
- ‎<p align = "center"> ‎⋆‎‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
-**「some arent even nicknames their titles ATP」⋆.**
-![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
 ![BANNWE](https://github.com/user-attachments/assets/3c404ad8-7add-44c6-8ee8-ac8cfacdc615)
