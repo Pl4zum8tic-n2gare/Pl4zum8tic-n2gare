@@ -5,20 +5,19 @@
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
     ₊⊹**[ata](https://pl9zum2tic-n8gare.atabook.org/)/[Reply](https://replaz.straw.page)** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
- ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[strawp](https://pzm.straw.page) ✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  ‎ ‎ ⋆‎
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ 
-![image](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
- ![image](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
-![image](https://64.media.tumblr.com/a9358805ceff0bb33413162d2acb4bf7/a7157813003180d2-18/s100x200/034a5adcb99c4c734aa2a43834cf509ea99fad67.gifv)
-![image](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
-![image](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎![1e](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
+![2e](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
+![3e](https://64.media.tumblr.com/a9358805ceff0bb33413162d2acb4bf7/a7157813003180d2-18/s100x200/034a5adcb99c4c734aa2a43834cf509ea99fad67.gifv)
+![4e](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
+![5e](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
 
- ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/513d69a5-073c-4ac4-b0ae-44385549beca)
+ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/513d69a5-073c-4ac4-b0ae-44385549beca)
 ![VIEWC](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet&style=plastic&label=Mon+Cheri)‎ ‎![image](https://github.com/user-attachments/assets/4197dd62-48fb-4553-b26b-22242878fa3f)
- ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ⋆‎ ‎‎‎ ‎  ⋆‎ ‎ ⋆‎
+ ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎‎‎ ‎  
 
 ![BANNER](https://files.catbox.moe/npw768.png)
 
@@ -26,7 +25,7 @@
 
   
  * . ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
-「my **beloveds**」
+「mon **amourz**」
 **:![img](https://files.catbox.moe/xk09u8.gif)<<**
 ![g](https://64.media.tumblr.com/a06c0bda406b81885463dfa7fbba3127/3681942004ce372b-e4/s75x75_c1/8cabb2c6650154f10142ca7ef18bf1586675581e.gifv)
 ![l](https://64.media.tumblr.com/a414b5fb8f78296f678944d17a8e6920/3681942004ce372b-d7/s75x75_c1/72685f5f2debf8c73bd461cbfcb46be3b97ea879.gifv) ![k](https://64.media.tumblr.com/6599f3c1910ea98db63d8d10b952d15f/3681942004ce372b-e4/s75x75_c1/ba51ba5ebb3aab55bc1c07a8c126cb3013fee89d.gifv)
