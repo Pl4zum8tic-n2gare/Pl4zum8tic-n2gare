@@ -40,22 +40,20 @@
 ![image](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
 ![image](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
 ##  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎╰ ‎![image](https://github.com/user-attachments/assets/36232249-ee37-4830-9faa-5377b8acc73d) HEY BROS *PLAZMA* & SHIT U CAN READ ABT ![image](https://github.com/user-attachments/assets/4d8e857e-bc5b-4949-9e79-46d9f4af43c8) ノ
-- ⋆‎ ‎‎ ‎ ‎ ‎⋆⋆‎  ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎**╰、UNUSED Names。ノ :**‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** 
-- ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
-‎ ‎ ‎ ‎  ‎**╰。enver、yama。koichiノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
- ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。elric 、yuzu 。ノ** ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
+ ‎<p align = "center"> ⋆‎ ‎‎ ‎![h](https://64.media.tumblr.com/e66b3f37638717eef550f7e76bcca8d4/98ec710d1724aa70-c8/s75x75_c1/25f5a0ef0d5919ec47ee509e221b57b7e19ed12e.gifv) ‎‎ ‎**╰、UNUSED Names。ノ **‎ ‎ ‎⋆‎‎ ‎⋆‎‎ ⋆‎‎ ‎⋆‎‎ ‎‎ ‎**╰⟡ ݁₊ .MOST USED Namesノ** ⋆.![m](https://64.media.tumblr.com/59823d244c9a7611fd926407df7a2d64/98ec710d1724aa70-7c/s75x75_c1/ac5e4bed7adfbc9e19360f651703acf3772bc4ee.gifv)
+ ‎<p align = "center"> ‎![image](https://github.com/user-attachments/assets/75c9e708-c1ae-4d25-ae4f-15932c476078)
+‎ ⋆ ‎**╰。enver、yama。koichiノ :** ‎ ‎ ‎ ⋆‎‎ ‎ ‎‎‎‎ ‎‎‎ ‎ ![image](https://github.com/user-attachments/assets/5a39989e-147d-42bd-afe7-3d5ddeb32025)
+ ‎ ‎ ‎ ‎⋆‎‎ ‎ ‎ ‎‎ **:╰、Plazma。elrik 、yuzu 。ノ** .⋆ ![image](https://github.com/user-attachments/assets/f6034c52-60d1-4d88-b1b2-ebb5a7aa1877)
+‎ ‎ ‎ ‎
+ ‎<p align = "center"> ⋆![image](https://github.com/user-attachments/assets/fd451eb0-644e-4a2b-9dc3-5beb0470f7aa)
+ ‎ ‎⋆ ‎ ‎ ‎ ‎⟡ ݁₊‎╰**unique nicknamesノ**‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ![image](https://github.com/user-attachments/assets/9a714129-d671-49ee-a301-0f4b35cbfa13)
+  ‎  ⋆ ╰**common nicknamesノ ⟡ ݁ ₊  ![image](https://github.com/user-attachments/assets/adac7a36-0b4e-4e3c-b26a-42541022b998)**       
+ ‎<p align = "center"> **![image](https://github.com/user-attachments/assets/56f1f5a7-a5e5-46de-9ef5-f8822f31db74)
+  。eel、plastic、yewzooノ** ‎⋆‎ ‎‎ ![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。rik 、ichi 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
 
-
-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎
-- ⋆![image](https://github.com/user-attachments/assets/fd451eb0-644e-4a2b-9dc3-5beb0470f7aa)
- ‎ ‎⋆ ‎ ‎ ‎ ‎⟡ ݁₊‎╰**unique nicknamesノ**‎ ‎‎ ⋆‎ ‎ ‎‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/9a714129-d671-49ee-a301-0f4b35cbfa13)
-  ‎ ‎ ‎‎  ⋆ ╰**common nicknamesノ⟡ ݁₊![image](https://github.com/user-attachments/assets/adac7a36-0b4e-4e3c-b26a-42541022b998)**       
-- **![image](https://github.com/user-attachments/assets/56f1f5a7-a5e5-46de-9ef5-f8822f31db74)
-  。KIDnaper、plastic、plazballzノ** ‎⋆‎![image](https://github.com/user-attachments/assets/30429b43-5fa4-4a70-9600-ac4758b05aed)  ⋆‎‎**╰、Plaz。pan 、yuzu 。ノ** ![image](https://github.com/user-attachments/assets/79e26b4c-9a8d-4adc-8b08-0f3ed93d63d4)
-
-- ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎ ‎ ⋆ ‎ ‎ ⋆  ‎ ‎ 『i love nicknames pla give more』
--  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ ‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
-**「some arent even nicknames their titles ATP」.**
+ ‎<p align = "center"> ⋆‎‎『i love nicknames pla give more』‎‎⋆
+ ‎<p align = "center"> ‎⋆‎‎ ‎![image](https://github.com/user-attachments/assets/d98453d0-d4f7-4635-84c1-75fd6df623e3)
+**「some arent even nicknames their titles ATP」⋆.**
 ![image](https://github.com/user-attachments/assets/b29d0119-c6b4-451c-9986-ddf014e471bc)
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
@@ -69,7 +67,7 @@
  ⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
   ‎ ⋆‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ⋆‎‎‎‎‎ ‎  ‎ ⋆‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎  ‎ ⋆‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎‎ ‎  ‎‎‎‎‎ ![image](https://github.com/user-attachments/assets/accdee9d-0a74-4555-9f35-cf8afa3333b3)
 ₊˚ **⧽╰ ⌞Any Pronouns i IDC. ⌝ノ** ![hi](https://files.catbox.moe/leevuf.gif)
-‎<p align = "center">  ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
+‎<p align = "center"> ![he](https://64.media.tumblr.com/d3d72c517b78899159054ca221014899/4720c94c0b561795-fd/s75x75_c1/e5d223e83c0f8ee5eb007104904fa52e047604ac.gifv) ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ‎ ‎ ‎ ‎.‎![meo](https://github.com/user-attachments/assets/362a9eee-0e6e-4124-90f0-d0a25886c683)
  ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎⋆. ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎⋆![image](https://github.com/user-attachments/assets/34fa80a4-0b02-4e28-91b5-c27f00dd4a21) **╰the USUAL ones:ノ** ˚★
 ![image](https://github.com/user-attachments/assets/0b4a40da-a891-46f9-842a-20f4db27faef)
