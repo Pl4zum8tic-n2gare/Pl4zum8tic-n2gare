@@ -17,8 +17,7 @@
 
 ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎ ‎ ‎‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/513d69a5-073c-4ac4-b0ae-44385549beca)
 ![VIEWC](https://komarev.com/ghpvc/?username=your-Pl4zum8tic-n2gare&color=blueviolet&style=plastic&label=Mon+Cheri)‎ ‎![image](https://github.com/user-attachments/assets/4197dd62-48fb-4553-b26b-22242878fa3f)
- ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎ ‎‎‎ ‎  
-
+ ‎ ‎ ⋆‎ ‎‎. ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ⋆‎
 ![BANNER](https://files.catbox.moe/npw768.png)
 
 
@@ -39,9 +38,13 @@
 ‎ ‎‎ ‎ ‎ ⋆  ‎‎ ⋆‎‎  ‎‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
 ‎⋆‎  ‎ ‎‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
-‎ ‎ ‎ ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" /> <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .idc
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
-<table>
+‎ ‎ ‎
+<img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://64.media.tumblr.com/69284e70b5fa6670d6383511bb471650/02db63bc8d85a9ff-7e/s250x400/c3aae3eb12bd2ccc0ea38a3d9031f66453296d84.gifv"/>
+
+
+‎‎<p align = "">  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .Idc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
+
+
   <tr>
   
  <tr>
@@ -59,7 +62,8 @@
 </th>
 </tr>
 </table>
-
+ ‎‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
+<table> </p>‎
 
 ![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
 ![BANNWE](https://github.com/user-attachments/assets/3c404ad8-7add-44c6-8ee8-ac8cfacdc615)
@@ -67,20 +71,6 @@
 ![image](https://github.com/user-attachments/assets/c04e1e03-c6e6-49b3-b1e8-a1f5745eda2d)
 ![image](https://github.com/user-attachments/assets/0d473692-ccda-45c4-8d0d-a09ac5e55276)
 ![image](https://github.com/user-attachments/assets/cbbab91e-62cf-483d-9662-cded1c99f852)
-
-‎<p align = "center"> ![image](https://github.com/user-attachments/assets/31dfb321-5a65-401e-ba51-45cb9426c459)
- ⋆‎‎ ‎‎‎**╰my rainboe flags ⌝ノ⟡ ݁**₊![image](https://github.com/user-attachments/assets/f1590e71-f648-483b-8768-c3f061f89ce1)
-  ‎ ⋆‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ⋆‎‎‎‎‎ ‎  ‎ ⋆‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎  ‎ ⋆‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎‎‎ ‎  ‎‎‎‎‎ ![image](https://github.com/user-attachments/assets/accdee9d-0a74-4555-9f35-cf8afa3333b3)
-₊˚ **⧽╰ ⌞Any Pronouns i IDC. ⌝ノ** ![hi](https://files.catbox.moe/leevuf.gif)
-‎<p align = "center"> ![he](https://64.media.tumblr.com/d3d72c517b78899159054ca221014899/4720c94c0b561795-fd/s75x75_c1/e5d223e83c0f8ee5eb007104904fa52e047604ac.gifv) ݁**╰aroanc、nonbinar。ノ**![image](https://github.com/user-attachments/assets/e773fe8c-8c94-4c38-88f1-f3da24b71e32)
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⋆ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎⋆. ‎ ‎ ‎ ‎.‎![meo](https://github.com/user-attachments/assets/362a9eee-0e6e-4124-90f0-d0a25886c683)
- ⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎⋆. ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎⋆![image](https://github.com/user-attachments/assets/34fa80a4-0b02-4e28-91b5-c27f00dd4a21) **╰the USUAL ones:ノ** ˚★
-![image](https://github.com/user-attachments/assets/0b4a40da-a891-46f9-842a-20f4db27faef)
-‎<p align = "center"> ݁**╰‎masc![image](https://github.com/user-attachments/assets/bb0a71a3-e6fb-4c94-8fc9-af7b323fb770)、
-![image](https://github.com/user-attachments/assets/f6b27a06-acfb-476a-8bc9-06376343bb31) IDC guysノ** ‎ ‎ ‎ ‎ 
-‎<p align = "center"> ‎ ‎ .  ‎ ⋆‎  ‎ ‎![image](https://github.com/user-attachments/assets/cf25667c-3310-495d-b655-32e558c1ef4b)  ⋆‎ **╰。HER、‎ ‎HE。ITS、THEM。ノ** ⋆  ![image](https://github.com/user-attachments/assets/d0a826d2-f70d-4d0f-ab14-e617db0a4f7f) ⋆ .
-‎<p align = "center">‎ ‎ ‎‎ .‎ ‎‎ ‎⋆![image](https://github.com/user-attachments/assets/7bebfa2f-8361-4a02-9ac7-7eff2914fbad)
-‎⋆ ‎. ‎ ‎『**theese arent to strict! i dont care what u call me**』.   ‎⋆ .‎ ‎ ![image](https://github.com/user-attachments/assets/0789a4ca-210e-4941-b56a-59a35041ec58) . ⋆
 
 
 
