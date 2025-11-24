@@ -67,7 +67,7 @@
 
 <img width="2048" height="378" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
 
-<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/d22e909b76e54f42d1261d9a59a6bba7/bcb2779aa0f46b80-a9/s100x200/c31103d60edb8e42c1bd2d6edbc68af597314ed3.pnj" />
+<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
 
