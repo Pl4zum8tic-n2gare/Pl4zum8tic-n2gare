@@ -65,12 +65,23 @@
  ‎‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
 <table> </p>‎
 
-![image](https://github.com/user-attachments/assets/6d33f4dd-585e-4d29-bc61-bec26f8682be)
-![BANNWE](https://github.com/user-attachments/assets/3c404ad8-7add-44c6-8ee8-ac8cfacdc615)
-![baneebottom](https://github.com/user-attachments/assets/c4210ba0-d4a1-4f53-8b97-fe4bda44db8f)
-![image](https://github.com/user-attachments/assets/c04e1e03-c6e6-49b3-b1e8-a1f5745eda2d)
-![image](https://github.com/user-attachments/assets/0d473692-ccda-45c4-8d0d-a09ac5e55276)
-![image](https://github.com/user-attachments/assets/cbbab91e-62cf-483d-9662-cded1c99f852)
+<img width="2048" height="314" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://i.postimg.cc/Y2dNM04p/CAJ-SCR-FR-KIT-PRINCESS-BAROCCO-66.png"/>
+
+<img align="right" width="250" height="300" alt="Image-36" src="https://i.postimg.cc/Y2dNM04p/CAJ-SCR-FR-KIT-PRINCESS-BAROCCO-66.png" />
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<table>
+  <tr>
+    <th>
+$\color{purple}{\textsf{proshipper/darkshipper, real life gore enjoyer}}$ <br>
+$\color{blueviolet}{\textsf{no age limit but over 19 do not act creepy or rude}}$ <br>
+$\color{purple}{\textsf{alt-right, incel/femcel, problematic pride flags}}$ <br>
+$\color{blueviolet}{\textsf{support AI for creative use, rude for no reason}}$ <br>
+$\color{purple}{\textsf{support pedo, necro, zoo, rape fetish, or incest}}$ <br>
+$\color{blueviolet}{\textsf{generaly rude or toxic for no reason even its a prank}}$ <br>
+</th>
+</tr>
+</table>
 
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
