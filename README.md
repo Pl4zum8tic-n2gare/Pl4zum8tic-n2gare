@@ -65,9 +65,9 @@
  ‎‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
 <table> </p>‎
 
-<img width="2048" height="314" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
+<img width="2048" height="365" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
 
-<img align="right" width="250" height="300" alt="Image-36" src="https://i.postimg.cc/Y2dNM04p/CAJ-SCR-FR-KIT-PRINCESS-BAROCCO-66.png" />
+<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/9559987f44a7f15f9b09ab996471e2b8/f8b11521e946ae97-6c/s100x200/12805bd14dbccc1f4b86617f4b79df1bf7886844.pnj" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
 <table>
