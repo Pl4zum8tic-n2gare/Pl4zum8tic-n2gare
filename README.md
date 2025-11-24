@@ -65,7 +65,7 @@
  ‎‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
 <table> </p>‎
 
-<img width="2048" height="314" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://i.postimg.cc/Y2dNM04p/CAJ-SCR-FR-KIT-PRINCESS-BAROCCO-66.png"/>
+<img width="2048" height="314" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/5ijza8.png"/>
 
 <img align="right" width="250" height="300" alt="Image-36" src="https://i.postimg.cc/Y2dNM04p/CAJ-SCR-FR-KIT-PRINCESS-BAROCCO-66.png" />
 
