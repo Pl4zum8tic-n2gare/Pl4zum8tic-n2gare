@@ -29,8 +29,8 @@
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
 
 
-![[BANNER](https://files.catbox.moe/i0f6yl.png](https://camo.githubusercontent.com/6cc9f8d2fe674b62ee2e37ea93f64599afbcf05aebc724fca6cbcbc7ef077150/68747470733a2f2f66696c65732e636174626f782e6d6f652f69306636796c2e706e67)
-![image](https://github.com/user-attachments/assets/cf181f91-9153-4153-bdb3-365997338a99)
+![BANNER](https://files.catbox.moe/npw768.png)
+
 
 
   
