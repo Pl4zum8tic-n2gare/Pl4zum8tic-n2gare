@@ -63,13 +63,14 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{purple}{\textsf{sharing: opnions,ideas,concepts is super intruging to me}}$ <br>
       </div>
-      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
+      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br> 
     </th>
      </table> 
- ‎‎ ‎<p algin="right" ></p></p> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table>
- </p>‎
+ 
+ ‎‎ <img width="26" height="21" alt="image" src="https://files.catbox.moe/judt82.gif" /> ‎<p algin="right" ></p></p> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table>
 
- <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="15" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
+ 
+ <img width="150" height="18" alt="idk" src="https://media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="15" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
 
 <img width="2048" height="378" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
 
@@ -77,9 +78,9 @@
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
-<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" /> 
+<img align="right" width="350" height="400" alt="moon" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" />
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/ebde5391-425a-4d6e-ab4d-b57ec2c771a2" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
     <th>
@@ -100,11 +101,16 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
       </div>
-      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
+      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj"> <br>
     </th>
      </table>
-<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/16d43ae0d8134b69ee75b3d3e4ff37dd/9890b450b70b5d13-7f/s540x810/9acab2799b6525bf56dc0b072fe227a996f47a95.gifv" />
+<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
+<sub>‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎⋆ .‎‎  Creds <a href=https://github.com/COUNTRY-HUMANS> eveleen </a> <br>
 
 ‎ 
-‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
-![m](https://files.catbox.moe/zkqldn.png)
+‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎
+‎ ‎ ‎‎  <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=1d1a4c&interchange=false&profanity=false&bar_color=7c31b9&bar_color_cover=false">
+  </a>
+</p>
