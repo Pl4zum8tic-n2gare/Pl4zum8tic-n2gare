@@ -46,7 +46,7 @@
 <table>
   <tr>
     <th>
-      <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+      <img width="500" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yama, Enver, Elrik, jiji}}$ <br>
@@ -66,28 +66,37 @@
       <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
     </th>
      </table> 
- ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table> <img width="26" height="21" alt="image" src="https://files.catbox.moe/7452sb.gif" />
+ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table>
  </p>‎
 
 <img width="2048" height="378" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
 
-<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" />
+<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" /> <img width="150" height="20" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="20" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="20" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="20" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
-
-<table>
+  <table>
   <tr>
     <th>
-$\color{purple}{\textsf{proshipper/darkshipper, real life gore enjoyer}}$ <br>
-$\color{blueviolet}{\textsf{no age limit but over 19 do not act creepy or rude}}$ <br>
-$\color{purple}{\textsf{alt-right, incel/femcel, problematic pride flags}}$ <br>
-$\color{blueviolet}{\textsf{support AI for creative use, rude for no reason}}$ <br>
-$\color{purple}{\textsf{support pedo, necro, zoo, rape fetish, or incest}}$ <br>
-$\color{blueviolet}{\textsf{generaly rude or toxic for no reason even its a prank}}$ <br>
-</th>
-</tr>
-</table>
-
+      <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+      <div align="left">
+      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
+   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyer bleh!}}$ <br> 
+     <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{purple}{\textsf{no age limit but over 19 iwc do not act creepy or rude}}$ <br>
+      <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
+    $\color{blueviolet}{\textsf{support AI for creative use, ai artists,animaters bleh!!}}$ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{purple}{\textsf{support n@zi pedo, necro, zoo, rape fetish, or incest}}$ <br>
+      <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
+    $\color{blueviolet}{\textsf{generaly rude or toxic for no reason even its a prank}}$ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{purple}{\textsf{any type of judgement of peoples mental condition/health}}$ <br>
+      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
+    $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
+      </div>
+      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
+    </th>
+     </table>
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
 ![m](https://files.catbox.moe/zkqldn.png)
