@@ -38,32 +38,37 @@
 ‎ ‎‎ ‎ ‎ ⋆  ‎‎ ⋆‎‎  ‎‎ ‎ ‎ ‎ ⋆‎![image](https://github.com/user-attachments/assets/1781da25-c9eb-4f2d-a110-2a74e4820dc6)
 ‎⋆‎  ‎ ‎‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
-‎ ‎ ‎
+
 <img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://64.media.tumblr.com/69284e70b5fa6670d6383511bb471650/02db63bc8d85a9ff-7e/s250x400/c3aae3eb12bd2ccc0ea38a3d9031f66453296d84.gifv"/>
 
+ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .Idc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
 
-‎‎<p align = "">  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .Idc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
-
-
-  <tr>
-  
- <tr>
 <table>
   <tr>
     <th>
-      $\color{purple}{\textsf{My namez: PLAZMA Koichi Yama Enver Elrik}}$ <br>
-      $\color{blueviolet}{\textsf{mostly offtabz! and i reply very slow..}}$ <br>
-      $\color{purple}{\textsf{multiple styles? i dont mind if u take inspos}}$ <br>
-      $\color{blueviolet}{\textsf{feel free 2 int im shy but dont be scared i love talktives}}$ <br>
-      $\color{purple}{\textsf{i got extremely bad memory so be patient plz!! }}$ <br>
-      $\color{blueviolet}{\textsf{dont vent to me if you want good advice}}$ <br>
-      $\color{purple}{\textsf{intrests: CBL, FMA, ACE, and lots more!! u can check straw}}$ <br>
-      $\color{blueviolet}{\textsf{sharing opnions in convos is super intruging to me heh}}$ <br>
-</th>
-</tr>
-</table>
- ‎‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
-<table> </p>‎
+      <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+      <div align="left">
+      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
+   $\color{purple}{\textsf{My namez: PLAZMA Koichi Yama Enver Elrik}}$ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{blueviolet}{\textsf{mostly offtabz! and i reply very slow..}}$ <br>
+      <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
+    $\color{purple}{\textsf{i have multiple styles idc if u take inspo/colorpick}}$ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{blueviolet}{\textsf{feel free 2 int im shy but dont be scared i love talktives}}$ <br>
+      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
+    $\color{purple}{\textsf{current intrests: CBL, FMA, ACE, and lots more!!}}$ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    $\color{blueviolet}{\textsf{i got extremely bad memory so be patient plz!!}}$ <br>
+      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
+    $\color{purple}{\textsf{sharing opnions in convos is super intruging to me heh}}$ <br>
+      </div>
+      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
+    </th>
+     </table> 
+ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
+<table> <img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/23004fc6-9aa9-4d8b-a2ab-66775419ade0" />
+ </p>‎
 
 <img width="2048" height="378" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
 
