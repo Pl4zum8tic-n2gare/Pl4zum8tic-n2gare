@@ -67,7 +67,7 @@
     </th>
      </table> 
  
- ‎‎ <img width="26" height="21" alt="image" src="https://files.catbox.moe/judt82.gif" /> ‎<p algin="right" ></p></p> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table>
+ ‎‎ ‎<p algin="left" ></p></p> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG"> </a> <img width="26" height="21" alt="wing" src="https://files.catbox.moe/judt82.gif" /> <table>
 
  
  <img width="150" height="18" alt="idk" src="https://media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="15" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
@@ -80,7 +80,7 @@
 
 <img align="right" width="350" height="400" alt="moon" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" />
 
-<img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/ebde5391-425a-4d6e-ab4d-b57ec2c771a2" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
     <th>
@@ -114,3 +114,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=1d1a4c&interchange=false&profanity=false&bar_color=7c31b9&bar_color_cover=false">
   </a>
 </p>
+
+‎<p align = "center">  ![m](https://64.media.tumblr.com/cc80f71e005936a34f20b0b7f7c8157c/4bac99eac0355a05-95/s100x200/f7c77c6040d09a0544d2a87250432357a3451748.gifv) ![n](https://64.media.tumblr.com/d0e860bbc7ad73e9f1f8169074db3e87/6a96a74f8c300a15-6a/s100x200/d521f81156f942f0b9843ea9f26c8fcbdb00ac06.pnj) ![m](https://64.media.tumblr.com/254bb0ca554904f46c179e3127ed410a/d0472f76795cfdff-a0/s100x200/a200cd9043476a434a877bd1537a0be9cd20f4ca.gifv) ![n](https://64.media.tumblr.com/fcb9f7bd48c28f5d86402a4e0e8b4e52/6a96a74f8c300a15-12/s100x200/eabf8dcc8f6e861cbebcd9d7b6adcc2eaf7b6b7a.pnj)
+![bottom](https://files.catbox.moe/zkqldn.png)
