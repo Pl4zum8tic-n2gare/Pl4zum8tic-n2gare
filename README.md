@@ -49,25 +49,24 @@
       <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{purple}{\textsf{My namez: PLAZMA Koichi Yama Enver Elrik}}$ <br>
+   $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yama, Enver, Elrik, jiji}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{mostly offtabz! and i reply very slow..}}$ <br>
+    $\color{blueviolet}{\textsf{often offtab! feel free 2 c+h or hide even with friends}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
     $\color{purple}{\textsf{i have multiple styles idc if u take inspo/colorpick}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{feel free 2 int im shy but dont be scared i love talktives}}$ <br>
-      <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-    $\color{purple}{\textsf{current intrests: CBL, FMA, ACE, and lots more!!}}$ <br>
+    $\color{blueviolet}{\textsf{free 2 whisper! delayed replys, but i love talktive people!}}$ <br>
+      <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
+    $\color{purple}{\textsf{main intrest: CBL, FMA, ACE, and lots more! talk abt them!}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{i got extremely bad memory so be patient plz!!}}$ <br>
+    $\color{blueviolet}{\textsf{i got pretty bad memory so just remind me and be paient}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-    $\color{purple}{\textsf{sharing opnions in convos is super intruging to me heh}}$ <br>
+    $\color{purple}{\textsf{sharing: opnions,ideas,concepts is super intruging to me}}$ <br>
       </div>
       <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
     </th>
      </table> 
- ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a>
-<table> <img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/23004fc6-9aa9-4d8b-a2ab-66775419ade0" />
+ ‎‎ ‎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG" /></a> <table> <img width="26" height="21" alt="image" src="https://files.catbox.moe/7452sb.gif" />
  </p>‎
 
 <img width="2048" height="378" alt="tumblr_d4c171d40a8467f350755dca603f6c15_6b446658_2048" src="https://files.catbox.moe/xi8itx.png"/>
