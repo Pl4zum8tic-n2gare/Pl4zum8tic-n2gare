@@ -103,7 +103,8 @@
       <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br>
     </th>
      </table>
-<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/16d43ae0d8134b69ee75b3d3e4ff37dd/9890b450b70b5d13-7f/s540x810/9acab2799b6525bf56dc0b072fe227a996f47a95.gifv" /> ccc
+<img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/16d43ae0d8134b69ee75b3d3e4ff37dd/9890b450b70b5d13-7f/s540x810/9acab2799b6525bf56dc0b072fe227a996f47a95.gifv" />
 
-‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
+‎ 
+‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎<p align = "center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wpsjkl6uxczziowyd3ivwu33ge&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8663bb&interchange=false&bar_color=6b20b6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) </p>
 ![m](https://files.catbox.moe/zkqldn.png)
