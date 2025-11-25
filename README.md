@@ -46,7 +46,7 @@
 <table>
   <tr>
     <th>
-      <img width="500" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+ <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yama, Enver, Elrik, jiji}}$ <br>
