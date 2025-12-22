@@ -67,9 +67,12 @@
       </div>
       <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br> 
     </th>
-     </table> 
+   
+</table> 
+ <img align="left" width="290" height="400" alt="Image-36"src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
  
- ‎‎ ‎<p algin="left" ></p></p> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME" alt="Typing SVG"> </a> <img width="26" height="21" alt="wing" src="https://files.catbox.moe/judt82.gif" /> <table>
+ ‎<img width="26" height="21" alt="wing" src="https://files.catbox.moe/judt82.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME+!!!" alt="Typing SVG" /></a>
+  <table>
 
  
  <img width="150" height="18" alt="idk" src="https://media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="15" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
@@ -82,7 +85,7 @@
 
 <img align="right" width="350" height="400" alt="moon" src="https://files.catbox.moe/p9x7nm.png" />
 
-<img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
     <th>
@@ -107,7 +110,7 @@
     </th>
      </table>
 <img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
-<sub>‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎⋆ .‎‎  Creds <a href=https://github.com/COUNTRY-HUMANS> eveleen  ‎.⋆ </a>⟡ <br>
+<sub>‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎⋆ .‎‎  Credz <a href=https://github.com/COUNTRY-HUMANS> eveleen  ‎.⋆ </a>⟡ <br>
 
 ‎ 
 ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎
