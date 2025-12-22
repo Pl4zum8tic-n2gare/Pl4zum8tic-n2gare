@@ -84,7 +84,7 @@
 
 <img align="right" width="350" height="400" alt="moon" src="https://files.catbox.moe/p9x7nm.png" />
 
-<img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a><img align="right" width="275" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" />
+<img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a><img align="right" width="260" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" />
   <table>
   <tr>
     <th>
