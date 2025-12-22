@@ -84,7 +84,7 @@
 
 <img align="right" width="350" height="400" alt="moon" src="https://files.catbox.moe/p9x7nm.png" />
 
-<img  width="235" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /><img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img  width="228" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /><img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
     <th>
@@ -125,3 +125,7 @@
 
 ‎<p align = "center">  ![m](https://64.media.tumblr.com/cc80f71e005936a34f20b0b7f7c8157c/4bac99eac0355a05-95/s100x200/f7c77c6040d09a0544d2a87250432357a3451748.gifv) ![n](https://64.media.tumblr.com/d0e860bbc7ad73e9f1f8169074db3e87/6a96a74f8c300a15-6a/s100x200/d521f81156f942f0b9843ea9f26c8fcbdb00ac06.pnj) ![m](https://64.media.tumblr.com/254bb0ca554904f46c179e3127ed410a/d0472f76795cfdff-a0/s100x200/a200cd9043476a434a877bd1537a0be9cd20f4ca.gifv) ![n](https://64.media.tumblr.com/fcb9f7bd48c28f5d86402a4e0e8b4e52/6a96a74f8c300a15-12/s100x200/eabf8dcc8f6e861cbebcd9d7b6adcc2eaf7b6b7a.pnj) ![m](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7a0b0d86-656e-4fc3-bd28-a320f997b832/d2lxh8u-ad40a3d5-499a-4e1d-a7b4-2a75fcc34c82.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83YTBiMGQ4Ni02NTZlLTRmYzMtYmQyOC1hMzIwZjk5N2I4MzIvZDJseGg4dS1hZDQwYTNkNS00OTlhLTRlMWQtYTdiNC0yYTc1ZmNjMzRjODIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.NoiXQnL1Qg6lsqnheF_YxVHfnRxi3roqaYCwix5mBd8)
 ![bottom](https://files.catbox.moe/zkqldn.png)
+
+<video controls="" autoplay="" name="jennifer">
+    <source src="https://user.github.io/project/audio/sound.mp3" type="https://913159-jennifer-thomas.mp3.pm/song/7524320-etude-for-the-dreamer-albom-illumination-2012"/>
+</video>
