@@ -41,7 +41,7 @@
 ‎⋆‎  ‎ ‎‎ ‎ ‎ ‎ ⋆![image](https://github.com/user-attachments/assets/31774da1-8b33-468d-9230-25dc5ea84b4c)
 ‎ ⋆ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
 
-<img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://64.media.tumblr.com/69284e70b5fa6670d6383511bb471650/02db63bc8d85a9ff-7e/s250x400/c3aae3eb12bd2ccc0ea38a3d9031f66453296d84.gifv"/>
+<img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://files.catbox.moe/m3qwdl.png"/>
 
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .Idc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
 
@@ -80,7 +80,7 @@
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
-<img align="right" width="350" height="400" alt="moon" src="https://64.media.tumblr.com/a6025c15441778b7b0336afdd5b1e542/99b1d64467e34d1f-30/s400x600/42e890e9217db2b1d9f9e76b16ad4d8198fc0281.gifv" />
+<img align="right" width="350" height="400" alt="moon" src="https://files.catbox.moe/p9x7nm.png" />
 
 <img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
