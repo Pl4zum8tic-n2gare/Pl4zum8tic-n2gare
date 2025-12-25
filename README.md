@@ -106,7 +106,7 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
       </div>
-      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj"> <br>
+      <img align="center" width="340" height="350" img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj"> <br>
     </th>
      </table>
 <img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
