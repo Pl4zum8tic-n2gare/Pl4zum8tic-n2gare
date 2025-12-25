@@ -92,17 +92,17 @@
       <img width="345" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyers}}$ <br> 
+   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyers ewu}}$ <br> 
      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{no age limit but over 19 iwc do not act off.}}$ <br>
+    $\color{purple}{\textsf{no age limit but over 19 iwc do not act weird/off.}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
-    $\color{blueviolet}{\textsf{support AI for creative use, ai artists,animaters}}$ <br>
+    $\color{blueviolet}{\textsf{supporting AI for creative use, ai artists,animaters}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{supports n@zi pedo, necro, zoo, rape, or incest}}$ <br>
+    $\color{purple}{\textsf{supporting n@zi pedo, necro, zoo, rape, or incest}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{blueviolet}{\textsf{rude or toxic for no reason even if its a prank}}$ <br>
+    $\color{blueviolet}{\textsf{rude or toxic for no reasoning, even if its a prank}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{any type of judgement 2 peoples mental health}}$ <br>
+    $\color{purple}{\textsf{any type of judgement to peoples mental health :c}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
       </div>
