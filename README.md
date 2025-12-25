@@ -9,7 +9,7 @@
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[straw](https://pzm.straw.page)/[artS](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  ‎ ‎ ⋆‎
-‎ <p align = "center"> ‎‎⋆.˚⊹ ╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ
+‎ <p align = "center"> ‎‎⋆.˚⊹ ╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ✧˚⊹.
 
 ‎ ‎‎ ‎‎ ‎  ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎![1e](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
 ‎![2e](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
