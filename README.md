@@ -9,9 +9,11 @@
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[straw](https://pzm.straw.page)/[artS](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  ‎ ‎ ⋆‎
+‎ <p align = "center"> ‎‎⋆.˚⊹ ╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ⋆‎ ‎ ‎╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ⋆‎ ‎ ‎ ‎ ‎‎ ‎ ‎.‎⋆‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎![1e](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
-![2e](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
+‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎⋆ 
+![1e](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
+‎![2e](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
 ![3e](https://64.media.tumblr.com/a9358805ceff0bb33413162d2acb4bf7/a7157813003180d2-18/s100x200/034a5adcb99c4c734aa2a43834cf509ea99fad67.gifv)
 ![4e](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
 ![5e](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
