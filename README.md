@@ -48,10 +48,10 @@
 <table>
   <tr>
     <th>
- <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+ <img width="385" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yama, Enver, Elrik, peche}}$ <br>
+   $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yuzu, Enver, Elrik, Renard}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{blueviolet}{\textsf{often offtab! feel free 2 c+h or hide even with friends}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
@@ -89,7 +89,7 @@
   <table>
   <tr>
     <th>
-      <img width="400" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+      <img width="385" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyer bleh!}}$ <br> 
