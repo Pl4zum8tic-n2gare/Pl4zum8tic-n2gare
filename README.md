@@ -88,25 +88,25 @@
 <img  width="228" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /><img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
-    <th>
-      <img width="350" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+  <th>
+      <img width="345" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyer bleh!}}$ <br> 
+   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyers}}$ <br> 
      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{no age limit but over 19 iwc do not act creepy or rude}}$ <br>
+    $\color{purple}{\textsf{no age limit but over 19 iwc do not act off.}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
-    $\color{blueviolet}{\textsf{support AI for creative use, ai artists,animaters bleh!!}}$ <br>
+    $\color{blueviolet}{\textsf{support AI for creative use, ai artists,animaters}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{support n@zi pedo, necro, zoo, rape fetish, or incest}}$ <br>
+    $\color{purple}{\textsf{supports n@zi pedo, necro, zoo, rape, or incest}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{blueviolet}{\textsf{generaly rude or toxic for no reason even its a prank}}$ <br>
+    $\color{blueviolet}{\textsf{rude or toxic for no reason even if its a prank}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{any type of judgement of peoples mental condition!!}}$ <br>
+    $\color{purple}{\textsf{any type of judgement 2 peoples mental health}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
       </div>
-      <img align="center" width="320" height="350" img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj"> <br>
+      <img align="center" width="315" height="350" img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj"> <br>
     </th>
      </table>
 <img align="right" width="350" height="400" alt="Image-36" src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
