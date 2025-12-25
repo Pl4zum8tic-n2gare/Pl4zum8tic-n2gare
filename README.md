@@ -102,7 +102,7 @@
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
     $\color{blueviolet}{\textsf{generaly rude or toxic for no reason even its a prank}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{any type of judgement of peoples mental condition!!}$ <br>
+    $\color{purple}{\textsf{any type of judgement of peoples mental condition!!}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{blueviolet}{\textsf{people that are a little to serious iwc..}}$ <br>
       </div>
