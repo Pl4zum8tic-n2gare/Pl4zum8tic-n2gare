@@ -43,7 +43,7 @@
 
 <img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://files.catbox.moe/m3qwdl.png"/>
 
- ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎masc. <img width="40" height="30" alt="64471029_zre" src="https://64.media.tumblr.com/abcf5c98f82041d913dc3d66a09b4370/581da0149023b545-fe/s100x200/6a46e7589719957316cc0bedd1ab96ce938fd3dd.pnj" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://64.media.tumblr.com/c7dd071934dc10bc035186034d353067/581da0149023b545-cd/s100x200/74921777a41237b3d7f22ea5a1ef993e9f14cfee.pnj"/> .Idc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
+ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎ace. <img width="40" height="30" alt="64471029_zre" src="https://files.catbox.moe/mqsw01.png" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://files.catbox.moe/2ww3ng.png"/> .masc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
 
 <table>
   <tr>
@@ -92,7 +92,7 @@
       <img width="345" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{blueviolet}{\textsf{proshipper/darkshipper, real life gore enjoyers...}}$ <br> 
+   $\color{blueviolet}{\textsf{darkshipper,lolicon, real life gore enjoyers...}}$ <br> 
      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{purple}{\textsf{no age limit but over 19 iwc do not act weird}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
