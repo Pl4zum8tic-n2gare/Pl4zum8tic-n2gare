@@ -13,7 +13,6 @@
 
 ‎ ‎‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎  ‎![1e](https://github.com/user-attachments/assets/40411a25-93fc-4fc2-9325-caebf7d04122)
 ‎![2e](https://github.com/user-attachments/assets/2cc519be-2d19-4b6b-a7a8-185adb125ee4)
-![3e](https://64.media.tumblr.com/a9358805ceff0bb33413162d2acb4bf7/a7157813003180d2-18/s100x200/034a5adcb99c4c734aa2a43834cf509ea99fad67.gifv)
 ![4e](https://github.com/user-attachments/assets/c900cbe7-3104-471e-8b20-40480a58ad30)
 ![5e](https://github.com/user-attachments/assets/e82f6f93-1353-44f6-afa8-7ec1afddf80e)
 
@@ -26,7 +25,8 @@
 
   
  *  ‎![image](https://github.com/user-attachments/assets/82424994-5acb-41db-9f2b-ed96a4904eb8)
-.⋆ ![q](https://64.media.tumblr.com/deaa53d71da208579cc49818bd57e341/f9b3b56c063ceacf-02/s75x75_c1/84ac029ba615f4b8cd007c975c50a861cbdff9c5.gifv)MA **CHERIZ** ![q](https://64.media.tumblr.com/9f49feef35455dc4964f7b151664f1ee/f9b3b56c063ceacf-ec/s75x75_c1/61e5abda9185ecdcfca9a68191fade1d6dee82d8.gifv)
+.⋆ ![q](https://64.media.tumblr.com/deaa53d71da208579cc49818bd57e341/f9b3b56c063ceacf-02/s75x75_c1/84ac029ba615f4b8cd007c975c50a861cbdff9c5.gifv)![cher](https://github.com/user-attachments/assets/8c409548-0673-42a5-99a4-223778c37a29)
+ ![q](https://64.media.tumblr.com/9f49feef35455dc4964f7b151664f1ee/f9b3b56c063ceacf-ec/s75x75_c1/61e5abda9185ecdcfca9a68191fade1d6dee82d8.gifv)
 .![fr](https://64.media.tumblr.com/fd171817e140dc12203108701b9f9e76/tumblr_inline_p7j3agxRdr1qgg3e5_75sq.gifv)⋆.
 ![p](https://64.media.tumblr.com/be19199cafbb3a4dd51acd085cd34a6b/3681942004ce372b-d0/s75x75_c1/05d852ce8155b4e198c33985068cf664130bc6fa.gifv)
 ![l](https://64.media.tumblr.com/a414b5fb8f78296f678944d17a8e6920/3681942004ce372b-d7/s75x75_c1/72685f5f2debf8c73bd461cbfcb46be3b97ea879.gifv)
@@ -43,7 +43,9 @@
 
 <img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://files.catbox.moe/m3qwdl.png"/>
 
- ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ‎‎ace. <img width="40" height="30" alt="64471029_zre" src="https://files.catbox.moe/mqsw01.png" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://files.catbox.moe/2ww3ng.png"/> .masc  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
+ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![aro](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
+ <img width="40" height="30" alt="64471029_zre" src="https://files.catbox.moe/mqsw01.png" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://files.catbox.moe/2ww3ng.png"/> ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
+  ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
 
 <table>
   <tr>
