@@ -85,13 +85,15 @@
 ![BANENR](https://files.catbox.moe/xi8itx.png)
 
 
-- ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ .‎‎ ‎ ‎ ‎ ‎‎ ![m](https://files.catbox.moe/sn1lro.gif)  .**「 On ne voit bien qu'avec le cœur 」 ![m](https://files.catbox.moe/a7mest.gif) 「 something with claws musnt hug 」** ‎‎   ⋆. ![m](https://files.catbox.moe/55anz1.gif) ⋆ ‎‎   ‎‎   ⋆.    ⋆
+- ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ .‎‎  ‎ ‎‎ ![m](https://files.catbox.moe/sn1lro.gif)  .**「 On ne voit bien qu'avec le cœur 」 ![m](https://files.catbox.moe/a7mest.gif) 「 something with claws musnt hug 」** ‎‎   ⋆. ![m](https://files.catbox.moe/55anz1.gif) ⋆ ‎‎   ‎‎   ⋆.    ⋆
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
 <img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
 
-<img  width="228" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /><img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img  width="220" height="19" alt="stars" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /> ![wing](https://files.catbox.moe/7452sb.gif)
+
+<img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
   <th>
