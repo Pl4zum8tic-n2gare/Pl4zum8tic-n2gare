@@ -51,7 +51,7 @@
 <table>
   <tr>
     <th>
- <img width="385" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
+ <img width="345" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yuzu, francois, Elrik}}$ <br>
