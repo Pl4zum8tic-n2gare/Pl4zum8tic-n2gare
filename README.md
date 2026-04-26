@@ -41,10 +41,11 @@
 ‎⋆‎  ‎ ‎‎‎ ‎ ⋆![image](https://64.media.tumblr.com/8ebf0eeea7cd54dd22632f14d0a1c8ef/6df878abaca75156-a3/s75x75_c1/85f61f2f7f7acbdfaa586ab63f1f4197237d43e1.gifv)
 ‎ ⋆.‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
 
-<img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://files.catbox.moe/m3qwdl.png"/>
+<img align="left" width="300" height="300" alt="tamaki" 
+ src="https://files.catbox.moe/m3qwdl.png"/>
 
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![aro](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
- <img width="40" height="30" alt="64471029_zre" src="https://files.catbox.moe/mqsw01.png" />  ‎ ‎ ‎‎  ‎ ‎ ‎‎ <img width="40" height="30" alt="64471025_wiN" src="https://files.catbox.moe/2ww3ng.png"/> ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
+ ![flag](https://files.catbox.moe/sx9vnr.png)  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ![flag](https://files.catbox.moe/hfd8vc.png) ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
   ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
 
 <table>
@@ -88,7 +89,7 @@
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
-<img align="right" width="350" height="360" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
+<img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
 
 <img  width="228" height="39" alt="image" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /><img width="26" height="21" alt="wing" src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
