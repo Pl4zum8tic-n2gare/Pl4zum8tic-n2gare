@@ -89,9 +89,11 @@
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
-<img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
+
 
 <img src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+
+<img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
   <table>
   <tr>
   <th>
