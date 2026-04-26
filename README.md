@@ -56,15 +56,15 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yuzu, francois, Elrik}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{often offtab! feel free 2 c+h or hide even with mutuals}}$ <br>
+    $\color{blueviolet}{\textsf{often offtab! free 2 c+h or hide even with moots}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
     $\color{purple}{\textsf{multiple styles idc if u take inspo/colorpick}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{free 2 whisper! delayed replys, loves talktive people!}}$ <br>
+    $\color{blueviolet}{\textsf{free 2 whisper! delayed replys, i like talktive lads!}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{purple}{\textsf{main intrest: CBL, FMA, ACE, n lots more! talk abt them!}}$ <br>
+    $\color{purple}{\textsf{main intrest: Countries, bands, and more! chat abt it!}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{i got pretty bad memory so just remind me n be paient}}$ <br>
+    $\color{blueviolet}{\textsf{pretty bad memory so just remind me n be paient}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{purple}{\textsf{sharing: opnions,ideas,concepts is intruging to me}}$ <br>
       </div>
