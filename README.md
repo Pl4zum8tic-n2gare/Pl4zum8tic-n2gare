@@ -67,7 +67,8 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{purple}{\textsf{sharing: opnions,ideas,concepts is super intruging to me}}$ <br>
       </div>
-      <img align="center" width="350" height="90" img src="https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj"> <br> 
+
+![m](https://64.media.tumblr.com/57334b94abb6f31a89048553197d53fb/0c217c3dc15a98c8-6a/s400x600/b5187e7ede98058319fff69904556f76e8b96aa4.pnj)
     </th>
    
 </table> 
@@ -77,7 +78,7 @@
   <table>
 
  
- <img width="150" height="18" alt="idk" src="https://64.media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv" /> <img width="150" height="15" alt="image" src="https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv" /> <img width="150" height="18" alt="image" src="https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv" />
+![h](https://64.media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv) ![h](https://64.media.tumblr.com/a147b3e9db9b29c154e019e66a0be9cb/9bdf0c3f87bb564a-e4/s250x400/1669d06fb2b569dcf97627ac8d337c14d9153dcf.gifv) ![h](https://64.media.tumblr.com/99128e87237bd00fa29e63e27a7982b0/b18aff3ce9323114-02/s250x400/55856f10de48186b40916292d19e96ff142c5c29.gifv)![h](https://64.media.tumblr.com/8aa1ebc7c34b448185602332b7f9e99b/9bdf0c3f87bb564a-7d/s250x400/858b5b73c2d7548dbb13d4671c957bb709e75f84.gifv) ![h](https://64.media.tumblr.com/6008c65215a1d1fd3dece234bdb4d163/9bdf0c3f87bb564a-cb/s250x400/88783629043da514e3a20dc8c0560ddb03261b77.gifv)
 
 
 ![BANENR](https://files.catbox.moe/xi8itx.png)
