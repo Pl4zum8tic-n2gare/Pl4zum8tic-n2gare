@@ -85,15 +85,13 @@
 ![BANENR](https://files.catbox.moe/xi8itx.png)
 
 
-- ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ .‎‎  ‎ ‎‎ ![m](https://files.catbox.moe/sn1lro.gif)  .**「 On ne voit bien qu'avec le cœur 」 ![m](https://files.catbox.moe/a7mest.gif) 「 something with claws musnt hug 」** ‎‎   ⋆. ![m](https://files.catbox.moe/55anz1.gif) ⋆ ‎‎   ‎‎   ⋆.    ⋆
+- ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎⋆ .‎‎ ⋆ ‎ ‎‎ ![m](https://files.catbox.moe/sn1lro.gif)  .**「 On ne voit bien qu'avec le cœur 」 ![m](https://files.catbox.moe/a7mest.gif) 「 something with claws musnt hug 」** ‎‎   ⋆. ![m](https://files.catbox.moe/55anz1.gif) ⋆ ‎‎   ‎‎   ⋆.    
 
 ![line](https://files.catbox.moe/a9wurs.png) ‎ 
 
 <img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
 
-<img  width="220" height="19" alt="stars" src="https://github.com/user-attachments/assets/6cd846fe-b337-49a2-927e-796a8424f853" /> ![wing](https://files.catbox.moe/7452sb.gif)
-
-<img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<img src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
   <table>
   <tr>
   <th>
@@ -123,7 +121,7 @@
 </table> 
  <img align="right" width="295" height="45" alt="moon"src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
 
-![a](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)  ‎ ‎ ‎⋆ .‎‎ inspo <a href=https://github.com/COUNTRY-HUMANS> eveleen </a> ‎.⋆ ⟡ 
+![a](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)  ‎ ‎⋆ .‎‎ cred <a href=https://github.com/COUNTRY-HUMANS> eveleen </a> ‎.⋆ ⟡
  ![s](https://64.media.tumblr.com/c75c302f286a4d516d0e66b6fbe8954a/6a013847a16bf59c-46/s75x75_c1/e1e1a8e6ee39938c913571995f73153455124250.gifv) ![s](https://64.media.tumblr.com/801e6ac4a7aed4cf59ce59fe873cd8a6/6a013847a16bf59c-83/s75x75_c1/99cd9294ec9ce7fbd3e995f631c4ac76f798f59e.gifv) ![s](https://64.media.tumblr.com/89ae274529b9028b986de46e866748cc/6a013847a16bf59c-2d/s100x200/01074e5d7cc810006afb241bf0db212d75f26a5a.gifv) ![s](https://64.media.tumblr.com/58e7cb11bb340cef3cf246ed23c54486/6a013847a16bf59c-89/s75x75_c1/03c1b10be5a5af29b7725fe56c02ed1b9d591143.gifv)
 
 
