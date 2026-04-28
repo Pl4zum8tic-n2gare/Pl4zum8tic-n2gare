@@ -91,6 +91,8 @@
 <img src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
 
  <img src="https://files.catbox.moe/cqxdh8.png" width="300" align="right">
+ <img src="https://github.com/user-attachments/assets/0496d504-4729-41a5-b35c-85e7e76c98b3" width="315" />
+
   <table>
   <tr>
   <th>
