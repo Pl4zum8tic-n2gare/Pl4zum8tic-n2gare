@@ -7,7 +7,7 @@
     ₊⊹**[ATA](https://pl9zum2tic-n8gare.atabook.org/)book** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
-₊˚⊹ᰔ‎  ‎[straw](https://pzm.straw.page)/[artS](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
+₊˚⊹ᰔ‎  ‎[STRAW](https://3zm.straw.page)/[art](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
  ‎ ‎ ⋆‎
 ‎ <p align = "center"> ‎‎⋆.˚⊹ ╰even if im a friendly person PLEASE. Chat or INTERACT with me before sending a requestノ ✧˚⊹.
 
@@ -44,8 +44,7 @@
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![aro](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
  ![flag](https://files.catbox.moe/sx9vnr.png)  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ![flag](https://files.catbox.moe/hfd8vc.png) ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
   ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
-  <img align="left" width="300" height="300" alt="tamaki" 
- src="https://files.catbox.moe/m3qwdl.png"/>
+ <img src="https://files.catbox.moe/m3qwdl.png" width="300" align="left">
 
 <table>
   <tr>
@@ -72,7 +71,7 @@
     </th>
    
 </table>
-<img align="left" width="295" height="45" alt="moon"src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
+ <img src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" width="259" align="left" />  
  
  ‎<img width="26" height="21" alt="wing" src="https://files.catbox.moe/judt82.gif" /> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=About+ME+!!!" alt="Typing SVG" /></a>
   <table>
@@ -92,7 +91,7 @@
 
 <img src="https://files.catbox.moe/7452sb.gif" /> <img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&align=left&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
 
-<img align="right" width="300" height="300" alt="yama" src="https://files.catbox.moe/cqxdh8.png" />
+ <img src="https://files.catbox.moe/cqxdh8.png" width="300" align="right">
   <table>
   <tr>
   <th>
@@ -114,18 +113,19 @@
     $\color{blueviolet}{\textsf{those people that are a little to serious. iwc..}}$ <br>
       </div>
    
-<img width="380" height="49" alt="image" src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj" />
+ <img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj" width="380" />
    <br>
     </th>
      </table>
 
 </table> 
- <img align="right" width="295" height="45" alt="moon"src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" /> 
+ <img src="https://64.media.tumblr.com/15d2f7069ff551c7802c5e8e82bebad5/0c217c3dc15a98c8-83/s540x810/a881d007ae13faddb50ff26b9300e084f0f99c68.pnj" width="259" align="right" /> 
 
-![a](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)  ‎ ‎⋆ .‎‎ cred <a href=https://github.com/COUNTRY-HUMANS> eveleen </a> ‎.⋆ ⟡
- ![s](https://64.media.tumblr.com/c75c302f286a4d516d0e66b6fbe8954a/6a013847a16bf59c-46/s75x75_c1/e1e1a8e6ee39938c913571995f73153455124250.gifv) ![s](https://64.media.tumblr.com/801e6ac4a7aed4cf59ce59fe873cd8a6/6a013847a16bf59c-83/s75x75_c1/99cd9294ec9ce7fbd3e995f631c4ac76f798f59e.gifv) ![s](https://64.media.tumblr.com/89ae274529b9028b986de46e866748cc/6a013847a16bf59c-2d/s100x200/01074e5d7cc810006afb241bf0db212d75f26a5a.gifv) ![s](https://64.media.tumblr.com/58e7cb11bb340cef3cf246ed23c54486/6a013847a16bf59c-89/s75x75_c1/03c1b10be5a5af29b7725fe56c02ed1b9d591143.gifv)
-
-
+![a](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)  ‎ ‎⋆ .‎‎ inspo <a href=https://github.com/COUNTRY-HUMANS> eveleen </a> ‎.⋆ ⟡
+  <img src="https://64.media.tumblr.com/c75c302f286a4d516d0e66b6fbe8954a/6a013847a16bf59c-46/s75x75_c1/e1e1a8e6ee39938c913571995f73153455124250.gifv" width="50" />
+  <img src="https://64.media.tumblr.com/801e6ac4a7aed4cf59ce59fe873cd8a6/6a013847a16bf59c-83/s75x75_c1/99cd9294ec9ce7fbd3e995f631c4ac76f798f59e.gifv" width="55" />
+ <img src="https://64.media.tumblr.com/89ae274529b9028b986de46e866748cc/6a013847a16bf59c-2d/s100x200/01074e5d7cc810006afb241bf0db212d75f26a5a.gifv" width="65" />
+<img src="https://64.media.tumblr.com/58e7cb11bb340cef3cf246ed23c54486/6a013847a16bf59c-89/s75x75_c1/03c1b10be5a5af29b7725fe56c02ed1b9d591143.gifv" width="55" /> 
 <br>
 
 ‎ 
