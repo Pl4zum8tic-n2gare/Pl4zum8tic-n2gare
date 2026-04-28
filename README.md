@@ -40,11 +40,10 @@
 ‎ ‎‎  ✧  ‎‎ ⋆  ‎‎ .‎![image](https://files.catbox.moe/3979zi.gif)
 ‎⋆‎  ‎ ‎‎‎ ‎ ⋆![image](https://64.media.tumblr.com/8ebf0eeea7cd54dd22632f14d0a1c8ef/6df878abaca75156-a3/s75x75_c1/85f61f2f7f7acbdfaa586ab63f1f4197237d43e1.gifv)
 ‎ ⋆.‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
-
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎  ‎‎   ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![aro](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
  ![flag](https://files.catbox.moe/sx9vnr.png)  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ![flag](https://files.catbox.moe/hfd8vc.png) ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
   ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
- <img src="https://files.catbox.moe/m3qwdl.png" width="300" align="left">
+ <img src="https://files.catbox.moe/m3qwdl.png" width="285" align="left">
 
 <table>
   <tr>
