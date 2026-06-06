@@ -53,7 +53,7 @@
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
    $\color{purple}{\textsf{My namez: PLAZMA, Koichi, Yuzu, francois, Elrik}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{often offtab! free 2 c+h or hide even with moots}}$ <br>
+    $\color{blueviolet}{\textsf{often offtab! free 2 c+h or hide even with others}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
     $\color{purple}{\textsf{multiple styles idc if u take inspo/colorpick}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
