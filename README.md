@@ -33,7 +33,7 @@
 ![z](https://64.media.tumblr.com/8f28e46f55260a99e0674220896193dd/3681942004ce372b-2a/s75x75_c1/abc9d4c91d13c9ebd9d355428a80ef56f1d1c422.gifv)
 ![m](https://64.media.tumblr.com/5a633792c796adc84b9beea0f75bf2d3/3681942004ce372b-d8/s75x75_c1/f5762c96d11dd149572f6fb53f64ee2b5a3f749e.gifv)
 ![c](https://64.media.tumblr.com/63b3f70c872570ad1caf8bfbb34fe1cf/3681942004ce372b-6d/s75x75_c1/90f9ad057a5d811f779c55b36b9e02642c596604.gifv)
-![r](https://64.media.tumblr.com/d4601306e667b633aac7b6d2ce6a3170/3681942004ce372b-5e/s75x75_c1/f341f89ed1f785cb75d496af38e252077be0de1e.gifv)
+![s](https://64.media.tumblr.com/335c4077f57eee8d47e3ab6a5b2e9de7/7fc7e7b88e1b72e6-19/s75x75_c1/a19c5747f803f1c83a8ee24d52fe3ee7ac0ba9bf.gifv)
  ⋆‎‎ ![m](https://64.media.tumblr.com/25374c9605b552debd8a2b7c835c4ff5/4e08b7f591629216-e8/s75x75_c1/672dee34f3ddfafc71a465ebd1009ac052d7c8fd.gifv)‎‎  ‎‎ ✧‎‎  ‎‎  ‎ ⋆        . ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
 ‎  .‎‎  ‎ ⋆‎ ‎✧‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
 ‎ .‎   ‎⋆.‎ ‎‎ ‎ ✧‎ ‎ ⋆‎![image](https://files.catbox.moe/1sin4n.gif)
@@ -99,9 +99,9 @@
       <img width="345" height="59" alt="image" src="https://files.catbox.moe/iv0lu9.gif" />
       <div align="left">
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-   $\color{blueviolet}{\textsf{darkshipper,lolicon, real life gore enjoyers...}}$ <br> 
+   $\color{blueviolet}{\textsf{darkshipper,lolicon, irl gore enjoyers...}}$ <br> 
      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{no age limit but over 19 iwc do not act weird}}$ <br>
+    $\color{purple}{\textsf{no age limit but over 19 iwc dont act scary}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
     $\color{blueviolet}{\textsf{using AI for creative use, ai artists,animaters}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
