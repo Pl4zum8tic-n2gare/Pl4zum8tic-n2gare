@@ -4,7 +4,7 @@
 
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[GUN](https://guns.lol/pzm3)Z ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
-    ₊⊹**[ATA](https://pl9zum2tic-n8gare.atabook.org/)book** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
+    ₊⊹**[ATA](https://pzuma.atabook.org/)book** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[STRAW](https://3zm.straw.page)/[art](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
