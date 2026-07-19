@@ -31,9 +31,10 @@
 ![p](https://64.media.tumblr.com/be19199cafbb3a4dd51acd085cd34a6b/3681942004ce372b-d0/s75x75_c1/05d852ce8155b4e198c33985068cf664130bc6fa.gifv)
 ![l](https://64.media.tumblr.com/a414b5fb8f78296f678944d17a8e6920/3681942004ce372b-d7/s75x75_c1/72685f5f2debf8c73bd461cbfcb46be3b97ea879.gifv)
 ![z](https://64.media.tumblr.com/8f28e46f55260a99e0674220896193dd/3681942004ce372b-2a/s75x75_c1/abc9d4c91d13c9ebd9d355428a80ef56f1d1c422.gifv)
-![m](https://64.media.tumblr.com/5a633792c796adc84b9beea0f75bf2d3/3681942004ce372b-d8/s75x75_c1/f5762c96d11dd149572f6fb53f64ee2b5a3f749e.gifv)
+![m](https://github.com/user-attachments/assets/f14f73e2-e44a-4f47-b0eb-f4fdc209a370)
+![i](https://github.com/user-attachments/assets/d996358a-1a78-4cc6-bac4-97900b239e71)
 ![c](https://64.media.tumblr.com/63b3f70c872570ad1caf8bfbb34fe1cf/3681942004ce372b-6d/s75x75_c1/90f9ad057a5d811f779c55b36b9e02642c596604.gifv)
-![s](https://64.media.tumblr.com/335c4077f57eee8d47e3ab6a5b2e9de7/7fc7e7b88e1b72e6-19/s75x75_c1/a19c5747f803f1c83a8ee24d52fe3ee7ac0ba9bf.gifv)
+![k](https://github.com/user-attachments/assets/ec5100f7-ebe6-48c3-91b9-3c674c377edf)
  ⋆‎‎ ![m](https://64.media.tumblr.com/25374c9605b552debd8a2b7c835c4ff5/4e08b7f591629216-e8/s75x75_c1/672dee34f3ddfafc71a465ebd1009ac052d7c8fd.gifv)‎‎  ‎‎ ✧‎‎  ‎‎  ‎ ⋆        . ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
 ‎  .‎‎  ‎ ⋆‎ ‎✧‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
 ‎ .‎   ‎⋆.‎ ‎‎ ‎ ✧‎ ‎ ⋆‎![image](https://files.catbox.moe/1sin4n.gif)
@@ -41,7 +42,8 @@
 ‎⋆‎  ‎ ‎‎‎ ‎ ⋆![image](https://64.media.tumblr.com/8ebf0eeea7cd54dd22632f14d0a1c8ef/6df878abaca75156-a3/s75x75_c1/85f61f2f7f7acbdfaa586ab63f1f4197237d43e1.gifv)
 ‎ ⋆.‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎  ‎ ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![ace](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
- ![flag](https://files.catbox.moe/vipde9.png)  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ![flag](https://files.catbox.moe/hfd8vc.png) ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
+ ![https://en.wikipedia.org/wiki/Asexuality](https://files.catbox.moe/vipde9.png)  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ![https://lgbtqia.wiki/wiki/Gender_Apathetic](https://github.com/user-attachments/assets/7e46a9fa-2705-4c97-a577-2b162c181576)
+ ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
   ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
  <img src="https://files.catbox.moe/m3qwdl.png" width="285" align="left">
 
@@ -59,7 +61,7 @@
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{blueviolet}{\textsf{free 2 whisper! delayed replys, i like talktive lads!}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{purple}{\textsf{main intrest: Countries, bands, and more! chat abt it!}}$ <br>
+    $\color{purple}{\textsf{intrest: politics, bands, psychologists! chat abt it!}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{blueviolet}{\textsf{pretty bad memory so just remind me n be paient}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
