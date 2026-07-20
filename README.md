@@ -34,7 +34,6 @@
 ![m](https://github.com/user-attachments/assets/f14f73e2-e44a-4f47-b0eb-f4fdc209a370)
 ![i](https://github.com/user-attachments/assets/d996358a-1a78-4cc6-bac4-97900b239e71)
 ![c](https://64.media.tumblr.com/63b3f70c872570ad1caf8bfbb34fe1cf/3681942004ce372b-6d/s75x75_c1/90f9ad057a5d811f779c55b36b9e02642c596604.gifv)
-![k](https://github.com/user-attachments/assets/ec5100f7-ebe6-48c3-91b9-3c674c377edf)
  ⋆‎‎ ![m](https://64.media.tumblr.com/25374c9605b552debd8a2b7c835c4ff5/4e08b7f591629216-e8/s75x75_c1/672dee34f3ddfafc71a465ebd1009ac052d7c8fd.gifv)‎‎  ‎‎ ✧‎‎  ‎‎  ‎ ⋆        . ‎ ‎![image](https://github.com/user-attachments/assets/229c4178-9ca3-4a1f-858f-644d7257eccb)
 ‎  .‎‎  ‎ ⋆‎ ‎✧‎   ‎⋆![image](https://github.com/user-attachments/assets/c860b32f-07dc-4205-9be4-420a41fcfb45)
 ‎ .‎   ‎⋆.‎ ‎‎ ‎ ✧‎ ‎ ⋆‎![image](https://files.catbox.moe/1sin4n.gif)
