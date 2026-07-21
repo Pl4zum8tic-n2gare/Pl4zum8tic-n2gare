@@ -4,7 +4,7 @@
 
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ⋆‎ ![image](https://github.com/user-attachments/assets/dcddd151-6932-42bb-a201-4e7a62fd1418) ⋆⭒˚.⋆[GUN](https://guns.lol/pzm3)Z ‎✶⋆.˚![image](https://github.com/user-attachments/assets/c156bf0d-56ce-4a25-8e89-3fc4b19e582d)
  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ⋆‎   ![image](https://github.com/user-attachments/assets/d28812e8-ddab-4094-b6b1-657c7e53a8f3)
-    ₊⊹**[ATA](https://pzuma.atabook.org/)book** ✧˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
+    ₊ ⊹*[ATA](https://pzuma.atabook.org/)b[oo](https://rentry.co/MOIP)k* ✧ ˖![image](https://github.com/user-attachments/assets/4976e1f7-2758-48dd-9e13-4ee64b676636)
 ‎ ⋆‎
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎⋆‎![e](https://github.com/user-attachments/assets/29659fc1-7de9-4873-99ad-d2f6ec2c3072)
 ₊˚⊹ᰔ‎  ‎[STRAW](https://3zm.straw.page)/[art](https://plart.straw.page)✧˖.   ![image](https://github.com/user-attachments/assets/898dd066-41d6-4868-af0c-0938751d5a13) 
@@ -40,7 +40,7 @@
 ‎⋆‎  ‎ ‎‎‎ ‎ ⋆![image](https://64.media.tumblr.com/8ebf0eeea7cd54dd22632f14d0a1c8ef/6df878abaca75156-a3/s75x75_c1/85f61f2f7f7acbdfaa586ab63f1f4197237d43e1.gifv)
 ‎ ⋆.‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Hi](https://files.catbox.moe/s7wb07.png)
  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎  ‎  ‎ ⋆.![m](https://files.catbox.moe/s4xoz8.gif) ![ace](https://github.com/user-attachments/assets/9e456ecc-ca7b-4d9a-a0d7-0a37800460bc)
- [![flagace](https://files.catbox.moe/vipde9.png)](https://en.wikipedia.org/wiki/Asexuality)   ‎‎‎‎![info](https://64.media.tumblr.com/26486c4c06489653d20c7685d9f81a71/ac0ed779dcf60773-b4/s75x75_c1/18ea9709268666c96adb5d580cb27ab8c622359b.gifv)‎‎ [![gendflag](https://github.com/user-attachments/assets/7e46a9fa-2705-4c97-a577-2b162c181576)](https://lgbtqia.wiki/wiki/Gender_Apathetic)
+ [![flagace](https://files.catbox.moe/vipde9.png)](https://en.wikipedia.org/wiki/Asexuality)   [‎‎‎‎![info](https://64.media.tumblr.com/26486c4c06489653d20c7685d9f81a71/ac0ed779dcf60773-b4/s75x75_c1/18ea9709268666c96adb5d580cb27ab8c622359b.gifv)‎‎](https://rentry.co/BIGPLA) [![gendflag](https://github.com/user-attachments/assets/7e46a9fa-2705-4c97-a577-2b162c181576)](https://lgbtqia.wiki/wiki/Gender_Apathetic)
  ![masc](https://github.com/user-attachments/assets/2a48ff0d-a911-4cb2-a3e3-326e313a3a5b)
   ![m](https://biscuit.crd.co/assets/images/gallery03/89df5c45.gif?v=532faf5f).⋆</p>
  <img src="https://files.catbox.moe/m3qwdl.png" width="285" align="left">
