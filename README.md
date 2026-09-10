@@ -55,13 +55,13 @@
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{blueviolet}{\textsf{often offtab! free 2 c+h or hide even with others}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
-    $\color{purple}{\textsf{multiple styles idc if u take inspo/colorpick}}$ <br>
+    $\color{purple}{\textsf{multiple styles idrc if u take inspo/colorpick}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{blueviolet}{\textsf{free 2 whisper! delayed replys, i like talktive lads!}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{purple}{\textsf{intrest: politics, bands, psychologists! chat abt it!}}$ <br>
+    $\color{purple}{\textsf{intrest: politics, bands, psychology! chat abt it!}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{blueviolet}{\textsf{pretty bad memory so just remind me n be paient}}$ <br>
+    $\color{blueviolet}{\textsf{sometimes forgetful. just remind me n be paient}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
     $\color{purple}{\textsf{sharing: opnions,ideas,concepts is intruging to me}}$ <br>
       </div>
@@ -102,15 +102,15 @@
      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{purple}{\textsf{no age limit but over 19 iwc dont act scary}}$ <br>
       <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv">
-    $\color{blueviolet}{\textsf{using AI for creative use, ai artists,animaters}}$ <br>
+    $\color{blueviolet}{\textsf{using AI for creative use, ai-artists,poets,etc}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     $\color{purple}{\textsf{support To n@zi preds, necro, zoo, rape, or incest}}$ <br>
       <img src="https://64.media.tumblr.com/4d9b508ae813fe35fe4f6acfba69d4d0/3ebc7aa84564ec79-70/s75x75_c1/437c7d564e7a13daa0b9e572c191e4ad851fba5f.gifv">
-    $\color{blueviolet}{\textsf{rude or toxic for no reasoning, even if its a prank}}$ <br>
+    $\color{blueviolet}{\textsf{toxic or encouraging harassment 4 what ppl do}}$ <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    $\color{purple}{\textsf{any type of judgement to peoples mental health :c}}$ <br>
+    $\color{purple}{\textsf{quick to judge / short tempers iwc sobsob...}}$ <br>
       <img src="https://tomomi.neocities.org/pixeles2/345.gif">
-    $\color{blueviolet}{\textsf{those people that are a little to serious. iwc..}}$ <br>
+    $\color{blueviolet}{\textsf{those people that are a little too serious. iwc..}}$ <br>
       </div>
    
  <img src="https://64.media.tumblr.com/a593ae3d0bd01d85e0865ef8443b690a/0c217c3dc15a98c8-86/s540x810/89e23b651ea211f37dc0ac73c396bbc173a0e18c.pnj" width="380" />
